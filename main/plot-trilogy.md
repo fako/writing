@@ -4,8 +4,8 @@ Plot
 An outline of the story of the trilogy. Between the three parts there are interludes.
 What happens between these interludes is only known to the reader by what is told about them in the main parts of the trilogy.
 
-Currently the story is not finished.
-For each part there are as of yet vague sections that need clarification.
+Currently the story is far from finished. Only part 1 is somewhat finished.
+The other parts are more in a sketch phase and need to be further developed. 
 
 
 Hero: Cerof
@@ -17,7 +17,7 @@ Or to (helplessly) wait, see the world change and risk the decay of the things y
 
 During the story Cerof develops an understanding that it's impossible to tell right from wrong
 and that such classifications depend on your point of view.
-Therefore ...
+He learns that an open mind and heart will bring you fartest in life.
 
 
 Part 1: Hunt for the Monkey King
@@ -109,7 +109,7 @@ with in the background a window where the city is burning.
 
 Cerof discovers that if he touches the painting it turns into somekind of mirror, showing the room behind him, but not his own reflection.
 He steps through the painting unaware that he enters a world where everything is in chaos.
-Cerof learns that he's dead and that another Tirdecpion has thrown the world into chaos and has since secluded himself from society.
+Cerof learns that he's dead and that Tirdecpion has thrown the world into chaos and has since secluded himself from society.
 He sets out to find Tirdecpion and he starts talking to him to find out what is going on.
 
 It turns out that the world is a lot bigger than Cerof has ever imagined it to be and that Tirdecpion seems to haven't gone insane,
