@@ -8,8 +8,9 @@ Writing is a medium that I love to use for creating and this repository is a way
 What's new
 ----------
 
-Currently I'm working on [the setting](setting/index.md) in which I want to tell the story that is slowly developing in my head.
-You're welcome to read it and give feedback on where the story is going. That would help me a lot.
+Currently I'm working on [the plot of the first book](main/plot1.md) of the story that is slowly developing in my head.
+A first sketch of the plot of all three parts are described in [the trilogy plot](main/plot-trilogy.md).
+You're welcome to read these plots and give feedback on where the story is going. That would help me a lot.
 
 
 What's coming
