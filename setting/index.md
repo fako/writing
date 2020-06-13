@@ -28,12 +28,12 @@ Apart from this wildernis there are some crime invested parts, where most people
 The Tower of Atad
 -----------------
 
-This tower lies in the middle of The Valley at its deepest point and is therefore the center of the world.
+This tower lies in the middle of The Valley at its deepest point and is therefore the center of the world to the characters.
 It acts as a place of worship to Atad.
 
 At the top of this tower is a whole, that goes straight through the entire tower and forms a seemingly endless pit, that people call "the source".
-The pit is tought to lead straight to the source of all life,
-because to the people living inside The Valley it seems that the deep dark whole at the center of their world is the origin of that world.
+This pit is named like this, because it is tought to lead straight to the source of all life.
+The legend goes that the deep dark whole at the center of their world is the origin of that world.
 The death are thrown into this pit, because it is believed that if the dead return to the source, they will one day return to the world.
 
 
@@ -50,13 +50,11 @@ Sorsen is a devoted man to Atad and feels a moral obligation to bring the knowle
 Tirdecpion
 ----------
 
-Son of Sorsen. Whenever his father climbed The Tower of Atad to call upon the power of Atad it's Tirdecpion that meets him at the tower's base.
-Tirdecpion supports his old father who got severly weakened when Atad forcefully entered his body.
-When Sorsen puts an arm around his son Tirdecpion can feel some of the power flow into him.
+Son of Sorsen. Whenever his father climbs The Tower of Atad to call upon the power of Atad it's Tirdecpion that goes up to help.
+Tirdecpion supports his old father on the way down, because Sorsen gets severly weakened when Atad forcefully enters his body.
+When Sorsen puts an arm around his son, Tirdecpion can feel some of the power flow into him.
 The Atad gives him the blessing and curse of foresight. For some time Tirdecpion can say exactly what is going to happen before it does.
-
-Smartest man in the world and hero of The City.
-He uses the knowledge from his father to outsmart everybody.
+Tirdecpion uses this foresight to outsmart most people.
 
 
 Burte
@@ -67,34 +65,47 @@ Girlfriend of Tirdecpion.
 She hates men and many men hate her, because she is clearly superior to them.
 
 
+Cimsidirn Otar (Scrator Dinimi)
+-------------------------------
+
+Queen of The City and mother to Tirdecpion.
+
+Cimsidirn's power is to know what is right and what is wrong.
+In a way she looks into the future like Tirdecpion, but instead of knowing what will happen she knows whether a choice will have a good or a bad outcome.
+Cimsidirn is seen as a benevolent ruler, who has brought prosperity and has guided many people to a happy fulfilling life.
+However her dark side is that Cimsidirn benefits most from the choices that Cimsidirn makes herself and recommends to others.
+The monkeys are often drawing the short end and suffer under Cimsidirn's rule, without realising she is causing their suffering.
+
+
 Regne Otar
 ----------
 
-Mother of Tirdecpion.
+Sister of Tirdecpion.
 
-She creates very life like paintings, which are in fact portals to alternative realities.
-When somebody steps through these portals they see the reality they left behind on the canvas.
-However as soon as somebody steps through the image very slowly starts to crumble and fall apart, until nothing but a white canvas is left behind
-and the original reality is destroyed.
-Cimsidirn is trusted to decide which reality should be *the* reality and is the only one who gets to step through the paintings.
+Posesses one of the strongest super powers, but it's kept secret and therefor she seems to have no special talent, accept drawing beautifully.
+Her power is in fact to create very life like paintings, which become portals to alternative realities when you touch their canvases.
+When somebody steps through these portals they see the reality they left behind on the canvas on the other side.
+
+Cimsidirn is trusted to decide which reality should be *the* reality and decides this for everybody.
+She is the only one who gets to step through the paintings.
 
 
 House of Nitra
 --------------
 
-The All Knowing, Tirdecpion, Regne and Burte (by marriage) are all part of the House of Nitra.
+Serson, Tirdecpion, Regne, Cimsidirn and Burte (by marriage) are all part of the House of Nitra.
 
 
 House of Wal
 ------------
 
-A household in The City who are looking to protect The Monkeys from evil powers.
+A household in The City who are looking to protect The Monkeys from harm.
 
 
 The Monkeys
 -----------
 
-A group of poor people that live in misery, but are the driving force behind the wealth of The City.
+A group of poor people that live in misery, but are the driving force behind the wealth of The City of Terniten.
 Their home is The Jungle, but they come to the city to work every day.
 
 
@@ -108,13 +119,19 @@ Friend of Tirdecpion.
 Cetisuj Wal
 ----------
 
-A considerate honest women from the House of Wal
+A considerate honest women from the House of Wal. Wife of Cerof.
+
+
+Encinneco
+---------
+
+Brother of Cerof who died not very long ago.
 
 
 The Jungle
 ----------
 
-Everything outside of The City.
+Everything outside of The City of Terniten, but inside The Valley.
 
 
 The Monkey King
@@ -124,27 +141,10 @@ Somebody who has found happiness, but is misunderstood and seen as the enemy.
 He never comes to The City and what is not known is not loved, but all monkeys admire him. 
 
 
-Xael (aka Eagle Eye)
---------------------
-
-The only person originally from The City who ventures out into The Jungle. 
-He is a man who sees everything, but is blinded by his hate for The Monkey King, 
-who to him represents everything that is vile.
-
-What does his super power stand for?
-
-
-Cimsidirn Otar (Scrator Dinimi)
--------------------------------
-
-King of The City and stepfather to Tirdecpion, who recents him. Cimsidirn is powerful because people trust his judgements above all others.
-He tells the story that people are superior to monkeys.
-
-
 The Top of the World
 --------------------
 
 A point on the edge of the world that is higher than The Tower of Atam.
-When The All Knowing climbs a mountain to refresh his knowledge and reaches this point, The Atad that strikes him comes from outside The Valley.
+When Serson climbs a mountain to refresh his knowledge and reaches this point, The Atad that strikes him comes from outside The Valley.
 As Tirdecpion gets the knowledge from his father like he always does he goes insane.
 

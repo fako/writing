@@ -91,8 +91,9 @@ Her power is to make paintings that depict the world as she wants them to be.
 Once finished she can step through these paintings and live in the alternative world she just created.
 However she can only make minor changes to the world, as she has to paint some detail that she wants to change, and is unable to capture the entire world in one painting.
 
-Regne and Tirdecpion's mother knows about Regne's power and asks her to paint Tirdecpion as happy, unaware of the knowledge that brought him to fear and violence.
-Together Regne and the mother stepped through the painting and into the world where part 2 is taking place.
+Regne and Tirdecpion's mother, Cimsidirn, knows about Regne's power
+and asks her to paint Tirdecpion as happy, unaware of the knowledge that brought him to fear and violence.
+Together Regne and Cimsidirn stepped through the painting and into the world where part 2 is taking place.
 In this world Cerof is very much alive and it is this Cerof we continue to follow in the story.
 
 
@@ -119,14 +120,14 @@ It turns out that the world is a lot bigger than Cerof has ever imagined it to b
 but is only trying everything in his power to make The Valley a better place, protecting it from the unknown evil outside.
 Tirdecpion does regret the murder of his friend and wants to redeem himself.
 
-It has become clear that Regne and the mother of Tirdecpion have disappeared from the world Cerof and Tirdecpion are on and they plan to confront Tirdecpion's mother with the
+It has become clear that Regne and Cimsidirn have disappeared from the world Cerof and Tirdecpion are on and they plan to confront Cimsidirn with the
 truth she must know, but has kept a secret. They step back through the painting to confront her.
 
 
 Interlude 2
 -----------
 
-Tirdecpion's mother did not take the accusations litely. She decided to capture the heroes and asks Regne to create a new painting dipicting a Tirdecpion,
+Cimsidirn did not take the accusations litely. She decided to capture the heroes and asks Regne to create a new painting dipicting a Tirdecpion,
 that doesn't know anything about the manipulation she needs for a happy family.
 
 In order to justify the lock up of Cerof and Tirdecpion she tells false stories about them to everybody. Knowing that these lies will not endure forever;
