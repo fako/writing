@@ -7,18 +7,18 @@ An overview of important events in part one the main story.
 Introduction: Climbing the Tower
 --------------------------------
 
-We follow Sersen. An old man who dutyfully climbs a large tower despite his age.
-As he does so he reflects upon the world. Giving some insight to the world the story is set in.
+We follow Sorsen. An old man who dutyfully climbs a large tower despite his age.
+As he does so he reflects upon the world. Giving some insight to the story is set in.
 
-At the top of the tower Sersen reflects on a deep dark whole in the roof of the tower.
+At the top of the tower Sorsen reflects on a deep dark whole in the roof of the tower.
 This whole is thought to be endless and the origin of all life.
-Then Sersen turns towards the view from the tower and calls upon a mysterious power he calls Atad.
-A black mist rises up from the ground and speeds towards Sersen.
+Then Sorsen turns towards the view from the tower and calls upon a mysterious power he calls Atad.
+A black mist rises up from the ground and speeds towards Sorsen.
 The black mist enters his brain so violently that he passes out.
 
-When Sersen awakes his son Tirdecpion sits next to him and when he embraces him some of the power flows from father to son.
+When Sorsen awakes his son Tirdecpion sits next to him and when he embraces him some of the power flows from father to son.
 At that point Tirdecpion realizes something horrible is about to happen.
- 
+
 
 Plunder at The Market
 ---------------------
