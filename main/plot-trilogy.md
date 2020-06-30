@@ -103,17 +103,27 @@ Part 2: A Whole New World
 Cerof is living a similar life as he was in part 1. Still hunting The Monkey King with Tirdecpion.
 Both are unaware of the events that took place.
 
-However a tragical accedent happens. Cerof falls into the pit that is on the top of the Tower.
+However a tragical accident happens. Cerof falls into the pit that is on the top of the Tower.
 This pit is thought to be endless and is a resting place for those that died.
 He falls and falls, through the entire tower and he, he survives, because he falls into a water pool.
 It turns out that beneath the tower is a secret room.
 
-There he sees a painting of Tirdecpion depicted in dispear, standing over his own corpse,
+In the pitch black dark Cerof finds his way around and discovers some kind of fabric that you can easily stick your hand through.
+Uncertain whether he should go through it he's startled by a sudden splash. Somebody fell into the pool.
+It's Burte who turns on a lamp hanging from the ceiling.
+Then Cerof realises the fabric he could so easily penatrate is actually a painting Tirdecpion depicted in dispare, standing over Cerof's corpse,
 with in the background a window where the city is burning.
 
-Cerof discovers that if he touches the painting it turns into somekind of mirror, showing the room behind him, but not his own reflection.
-He steps through the painting unaware that he enters a world that is in turmoil.
-Cerof learns that he's dead and that Tirdecpion has thrown the world into chaos and has since secluded himself from society.
+Cerof starts questioning Burte about what this place is and how come this is not the beginning and end of all things.
+Burte evades his questions, but not being very bright she answers the question:
+"who has told you to keep secret, the person who told you to keep this place secret?"
+That turns out to be Cimsidirn. Mother of Tirdecpion.
+
+To be determined from here
+**************************
+
+Cerof steps through the painting unaware that he enters a world that is in turmoil.
+Cerof learns that he's dead in this world and that Tirdecpion has thrown the world into chaos and has since secluded himself from society.
 He sets out to find Tirdecpion and he starts talking to him to find out what is going on.
 
 It turns out that the world is a lot bigger than Cerof has ever imagined it to be and that Tirdecpion seems to haven't gone insane,
