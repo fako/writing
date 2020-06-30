@@ -1,7 +1,7 @@
 Plot Part 1: Hunt for the Monkey King
 =====================================
 
-An overview of important events in part one the main story.
+An overview of important events in part one the main story. More details about people, places and things in [the setting](../setting/index.md)
 
 
 Introduction: Climbing the Tower
