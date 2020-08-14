@@ -25,6 +25,19 @@ In between different locations within the city are large patches of wildernis wh
 Apart from this wildernis there are some crime invested parts, where most people won't go unless they absolutely have to be there.
 
 
+The Jungle
+----------
+
+Everything outside of The City of Terniten, but inside The Valley.
+
+
+The Monkeys
+-----------
+
+A group of poor people that live in misery, but are the driving force behind the wealth of The City of Terniten.
+Their home is The Jungle, but they come to the city to work every day.
+
+
 The Tower of Atad
 -----------------
 
@@ -77,17 +90,29 @@ However her dark side is that Cimsidirn benefits most from the choices that Cims
 The monkeys are often drawing the short end and suffer under Cimsidirn's rule, without realising she is causing their suffering.
 
 
+The Monkey King
+---------------
+
+He's the inspiration for all monkeys, who will work with vigor as long as he's around.
+Cimsidirn knows how he inspires the workers that she relies upon and tries to capture The Monkey King for more personal gain.
+In order to get away with this Cimsidirn pretends that The Monkey King is an evil villain that must be stopped.
+
+
 Regne Otar
 ----------
 
 Sister of Tirdecpion.
 
 Posesses one of the strongest super powers, but it's kept secret and therefor she seems to have no special talent, accept drawing beautifully.
-Her power is in fact to create very life like paintings, which become portals to alternative realities when you touch their canvases.
+Her power is in fact to create very life like paintings, which can become portals to alternative realities when you touch their canvases.
 When somebody steps through these portals they see the reality they left behind on the canvas on the other side.
 
-Cimsidirn is trusted to decide which reality should be *the* reality and decides this for everybody.
-She is the only one who gets to step through the paintings.
+A big downside for Regne is that only her mother Cimsidirn can turn one of her paintings into a portal.
+Therefor she relies a lot on her mother and recents that she can't create the reality that she truly wants.
+A reality where she and The Monkey King are happily in love with each other.
+Her mother deems a marriage between her daughter and a monkey unfit.
+The many paintings that depict Regne and The Monkey King in each others arms stand in a dusty basement unapproved by Cimsidirn.
+The denial of Regne's love for The Monkey King only makes it stronger.
 
 
 House of Nitra
@@ -100,13 +125,6 @@ House of Wal
 ------------
 
 A household in The City who are looking to protect The Monkeys from harm.
-
-
-The Monkeys
------------
-
-A group of poor people that live in misery, but are the driving force behind the wealth of The City of Terniten.
-Their home is The Jungle, but they come to the city to work every day.
 
 
 Cerof Wal
@@ -126,19 +144,6 @@ Encinneco
 ---------
 
 Brother of Cerof who died not very long ago.
-
-
-The Jungle
-----------
-
-Everything outside of The City of Terniten, but inside The Valley.
-
-
-The Monkey King
----------------
-
-Somebody who has found happiness, but is misunderstood and seen as the enemy.
-He never comes to The City and what is not known is not loved, but all monkeys admire him. 
 
 
 The Top of the World

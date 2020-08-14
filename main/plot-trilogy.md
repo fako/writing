@@ -4,8 +4,9 @@ Plot
 An outline of the story of the trilogy. Between the three parts there are interludes.
 What happens between these interludes is only known to the reader by what is told about them in the main parts of the trilogy.
 
-Currently the story is far from finished. Only part 1 is somewhat finished.
-The other parts are more in a sketch phase and need to be further developed. 
+Currently the story is maybe half way.
+The first two parts are somewhat finished, but are expected to change as the third part takes shape.
+The heros journey will need to get updated as well as it's not quite there yet.
 
 
 Hero: Cerof
@@ -86,14 +87,17 @@ Interlude 1
 It's left somewhat in the middle what happens after Tirdecpion gives the order.
 What is unknown to the reader is that Cerof indeed dies, but that another Cerof exists in a parallel world.
 
-This parallel world stems from Regne, the sister of Tirdecpion, who also has a super power.
-Her power is to make paintings that depict the world as she wants them to be.
-Once finished she can step through these paintings and live in the alternative world she just created.
-However she can only make minor changes to the world, as she has to paint some detail that she wants to change, and is unable to capture the entire world in one painting.
+This parallel world stems from Regne and Cimsidirn, the mother and sister of Tirdecpion, who have a super power together.
+Regne's power is to make paintings that depict the world as she wants them to be.
+Once finished Cimsidirn can approve a painting.
+At that point anybody can step through this painting into the alternative world that Regne depicted.
 
-Regne and Tirdecpion's mother, Cimsidirn, knows about Regne's power
-and asks her to paint Tirdecpion as happy, unaware of the knowledge that brought him to fear and violence.
-Together Regne and Cimsidirn stepped through the painting and into the world where part 2 is taking place.
+Regne and Cimsidirn often quarrel about the reality they want to live in.
+The former is a dreamer that wants to radically change things, while the latter only wants minor adjustments.
+Some of which her reluctant daughter is unwilling to draw for her.
+However in this case they both want Tirdecpion to be happy, unaware of the knowledge that brought him to fear and violence.
+Regne made this painting and Cimsidirn approved it.
+They stepped through the painting and into the world where part 2 is taking place.
 In this world Cerof is very much alive and it is this Cerof we continue to follow in the story.
 
 
@@ -106,51 +110,84 @@ Both are unaware of the events that took place.
 However a tragical accident happens. Cerof falls into the pit that is on the top of the Tower.
 This pit is thought to be endless and is a resting place for those that died.
 He falls and falls, through the entire tower and he, he survives, because he falls into a water pool.
-It turns out that beneath the tower is a secret room.
+It turns out that beneath the tower is a secret cave with an underground lake.
 
-In the pitch black dark Cerof finds his way around and discovers some kind of fabric that you can easily stick your hand through.
-Uncertain whether he should go through it he's startled by a sudden splash. Somebody fell into the pool.
+In the pitch black dark Cerof finds his way out of the water and discovers by touch some kind of fabric that you can easily stick your hand through.
+Uncertain whether he should go through it he's startled by a sudden splash. Somebody fell into the lake.
 It's Burte who turns on a lamp hanging from the ceiling.
 Then Cerof realises the fabric he could so easily penatrate is actually a painting Tirdecpion depicted in dispare, standing over Cerof's corpse,
 with in the background a window where the city is burning.
+As the painting is signed it's clear that Regne made it.
 
-Cerof starts questioning Burte about what this place is and how come this is not the beginning and end of all things.
-Burte evades his questions, but not being very bright she answers the question:
-"who has told you to keep secret, the person who told you to keep this place secret?"
-That turns out to be Cimsidirn. Mother of Tirdecpion.
+Cerof starts questioning Burte about what this place is, how come this is not the beginning and end of all things and what's happened to Regne's painting.
+Burte evades his questions, by answering she's not allowed to answer questions to anyone about this place,
+but not being very bright she answers the question: "who has told you to keep secret, the person who told you to keep this place secret?"
+That turns out to be Cimsidirn. Mother of Tirdecpion and Regne.
+
+Cerof confronts Cimsidirn with the secret place demanding to know more.
+Cimsidirn seems reluctant to tell the truth and in her role of Mother of the City,
+she advices him to turn away from this for his own happiness and to never tell a soul.
+He does so reluctantly and it's hard not to tell anything about this to his wife.
+His wife however feels that something is wrong and starts pressing Cerof.
+They get into an argument from which he flees.
+He goes to Regne to ask about the painting and what it means.
+Hoping to learn more about the mysterious cave under the tower.
+
+When Cerof starts asking about the painting in a bit of a casual manor, without mentioning the cave directly Regne is immediatelly on edge.
+She tells him his life is in danger and that they need to get out of here right away.
+Indeed not long thereafter assassins enter Regne's house trying to kill Cerof,
+but thanks to Regne who the assassins seem to spare at all costs Cerof defeats the assassins during a chaise around the city.
+
+When they're catching their breath from the homocide attempt Regne explains he's got to come with her.
+It's the only way to make things right. Cimsidirn is behind the attack and she wont rest until Cerof is dead.
+When Cerof asks what they're going to do Regne simply says he won't believe her until he sees it for himself.
+She promises to explain everything, but now they have no time to loose.
+
+Regne and Cerof climb the tower and Cerof almost looses his life again this time at the hand of Tirdecpion who seems convinced Cerof is a traitor.
+Cerof desparately tries to tell Tirdecpion that he's mistaken, while fighting an adversary who knows his every move before he makes it.
+To escape Tirdecpion, Regne and Cerof pretend to fall into the hole.
+Believing they have returned to the source and have died Tirdecpion does not pursuit.
+Once in the secret cave and outside the water Regne beckons Cerof to follow her through the painting.
+As Cerof steps through the painting he's unaware that he enters a world that is in more turmoil than the one he's leaving.
+
+It takes Cerof and Regne a lot of effort to climb out of The Tower and leave the place without being seen.
+Once in a safe place Regne explains to Cerof that it was Cimsidirn who convinced Tirdecpion that Cerof was a traitor.
+Her power is to be right even when she's wrong.
+Furthermore Regne explains her own power is to create alternative worlds
+and that they're currently in a world that Cimsidirn wants to abandon.
+Cerof is more than a little desperate and has no idea what to do next.
+Regne tells him that her aunt Tachm might be able to help him.
+She's a prophet like Tirdecpion, but instead of telling the immediate future,
+she can tell which course in life would make him happiest.
+
+However there's a catch. Regne wants Cerof to help her find her lover The Monkey King.
+Tirdecpion is keeping The Monkey King captured and together they set out to free him.
+
+Cerof learns that he's dead in this world and that Tirdecpion has thrown the world into chaos.
+It also becomes clear that Tirdecpion has abandoned the Tower and has moved towards the truly highest point in The Valley,
+where his father acquired so much knowledge that it killed him.
+Up in his stronghold he has secluded himself from society.
+Burte has wracked havoc in Terniten and instead of normal travel between places in people now have to use paths paved by stone.
+There is one such path that climbs the Valley's ridge all the way up to the stronghold where Tirdecpion lives.
+Regne and Cerof quickly abandon this road, because they don't want Tirdecpion to know that they're coming.
+The element of surprise is their biggest advantage.
+
+After some ordeals they to find The Monkey King in Tirdecpion's stronghold.
+To free him they have to face Tirdecpion who seems to haven't gone insane,
+but is only trying everything in his power to make The Valley a better place, protecting it from the unknown evil outside.
+Tirdecpion does regret the murder of his friend, but as Cerof was manipulated by Cimsidirn he couldn't risk an attack from his friend.
+He deeply apologizes, but assures Cerof that freeing The Monkey King would be a big mistake.
+Everything that has been build by Tirdecpion to defend The Valley is due to The Monkey King.
+Tirdecpion explains that the power of the Monkey King is to set the monkeys to work.
+If their enemies would get a hold on The Monkey King, they could harness the labor of the monkeys to build an army.
+An army would easily overrun The Valley and destroy it.
+Without Regne and Cimsidirn to create an alternative world the Valley would fall for real this time.
+Everybody Cerof loves would die a horrible death.
+
+Cerof is uncertain what to do, but he can't risk killing Tirdecpion or freeing The Monkey King.
+Instead he demands to know where Tachm is to learn about his true destiny.
+
 
 To be determined from here
 **************************
-
-Cerof steps through the painting unaware that he enters a world that is in turmoil.
-Cerof learns that he's dead in this world and that Tirdecpion has thrown the world into chaos and has since secluded himself from society.
-He sets out to find Tirdecpion and he starts talking to him to find out what is going on.
-
-It turns out that the world is a lot bigger than Cerof has ever imagined it to be and that Tirdecpion seems to haven't gone insane,
-but is only trying everything in his power to make The Valley a better place, protecting it from the unknown evil outside.
-Tirdecpion does regret the murder of his friend and wants to redeem himself.
-
-It has become clear that Regne and Cimsidirn have disappeared from the world Cerof and Tirdecpion are on and they plan to confront Cimsidirn with the
-truth she must know, but has kept a secret. They step back through the painting to confront her.
-
-
-Interlude 2
------------
-
-Cimsidirn did not take the accusations litely. She decided to capture the heroes and asks Regne to create a new painting dipicting a Tirdecpion,
-that doesn't know anything about the manipulation she needs for a happy family.
-
-In order to justify the lock up of Cerof and Tirdecpion she tells false stories about them to everybody. Knowing that these lies will not endure forever;
-she steps through the painting with her daughter and then attempts to destroy the painting to forever seal the gate between the two worlds.
-However the destruction of the portal also destroys the reality that lies behind it. Meaning that Cerof's world is starting to collapse.
-
-
-Part 3: The Valley
-------------------
-
-This parts starts with Cerof and Tirdecpion in prison and a terrible shimmer that goes through The Valley.
-These earthquakes have been happening for a while and with their rising intensity are starting to do real damage.
-
-Cerof and Tirdecpion manage to escape through the weakened structure of their prison and have to race against the clock to prevent the destruction of the painting
-and with it their world.
 
