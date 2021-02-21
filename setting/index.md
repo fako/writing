@@ -127,7 +127,7 @@ House of Wal
 A household in The City who are looking to protect The Monkeys from harm.
 
 
-Cerof Wal
+Moko Wal
 ---------
 
 A strong rightuous man from the House of Wal.
@@ -137,13 +137,13 @@ Friend of Tirdecpion.
 Cetisuj Wal
 ----------
 
-A considerate honest women from the House of Wal. Wife of Cerof.
+A considerate honest women from the House of Wal. Wife of Moko.
 
 
 Encinneco
 ---------
 
-Brother of Cerof who died not very long ago.
+Brother of Moko who died not very long ago.
 
 
 The Top of the World
