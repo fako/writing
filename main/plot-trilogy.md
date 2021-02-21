@@ -21,43 +21,43 @@ and that such classifications depend on your point of view.
 He learns that an open mind and heart will bring you fartest in life.
 
 
-Part 1: Hunt for the Monkey King
+Part 1: Hunt for the Barbarian King
 --------------------------------
 
-Everywhere The Monkey King goes he plunders, assaults and rapes the population.
+Everywhere The Barbarian King goes he plunders, assaults and rapes the population.
 Many men follow him into this destructive life, resulting in a savage mob of "monkeys" that terrorize everybody.
 
-Moko is the man responsible for stopping The Monkey King.
+Moko is the man responsible for stopping The Barbarian King.
 It's his duty to confront him, capture him alive and bring him to The Tower, where he shall receive judgement.
 
-A big problem is that Moko does not know where to find The Monkey King.
-Whenever Moko hears where he might be he goes there and finds nobody. Moko has never even seen The Monkey King.
+A big problem is that Moko does not know where to find The Barbarian King.
+Whenever Moko hears where he might be he goes there and finds nobody. Moko has never even seen The Barbarian King.
 It's almost as if he doesn't exist, but the horrible stories coming from his victims tell otherwise.
 
-Moko gets help to find The Monkey King from his friend Tirdecpion and Sersen, who is Tirdecpion's father.
+Moko gets help to find The Barbarian King from his friend Tirdecpion and Sersen, who is Tirdecpion's father.
 Sersen is an old man, but he regularly climbs The Tower to call upon his super powers. Which is to know everything that was.
 Through the bond of love that he has with his son, Sersen transfers some of his knowledge to Tirdecpion, which awakens his super power to predict the future.
 However since the foresight of Tirdecpion is not perfect the present unfolds itself to be slightly different from what Tirdecpion expects.
 As time passes these differences become bigger and bigger, until he re-connects with the historic knowledge from his father.
-So far Tirdecpion hasn't been able to pin point where The Monkey King will be accurately.
+So far Tirdecpion hasn't been able to pin point where The Barbarian King will be accurately.
 
 At the start of the story however Tirdecpion comes up with a plan to finally capture the villain.
-By visting certain locations and looking for signs at these places Tirdecpion is certain he can deduct where The Monkey King will be,
+By visting certain locations and looking for signs at these places Tirdecpion is certain he can deduct where The Barbarian King will be,
 based on where The Monkey was when those signs occured in the past.
-Everybody thinks it is an ingenious plan and they gather a small group to accompany Moko and Tirdecpion on their quest to bring The Monkey King to justice.
+Everybody thinks it is an ingenious plan and they gather a small group to accompany Moko and Tirdecpion on their quest to bring The Barbarian King to justice.
 
 These places that Tirdecpion needs to visit to look for signs, turn out to be a lot more dangerous than Moko signed up for.
-After many close encounters with death they finally arrive where The Monkey King should be.
+After many close encounters with death they finally arrive where The Barbarian King should be.
 Unfortunetaly he's not and Moko is more than a little angry for putting everybodies lives on the line for yet another failure.
 Disillusioned they return home when they hear growls and soft screams from the bushes.
 They approach carefully and see a man making love to a women in an intense way, which both seem to enjoy.
-When Sersen catches up he sees immediatelly that the man is The Monkey King.
+When Sersen catches up he sees immediatelly that the man is The Barbarian King.
 
-They capture The Monkey King and contemplate on executing him on the spot.
+They capture The Barbarian King and contemplate on executing him on the spot.
 Although the hate for the villain runs deep they decide to bring him to The Tower for trial instead.
 
-However The Monkey King escapes his captors. In a desperate attempt to recapture him Tirdecpion urges his father to climb the mountain to the edge of the world.
-Only from a very high vantage point can Sersen call upon his super powers to "know everything that was", and help Tirdecpion to outsmart The Monkey King.
+However The Barbarian King escapes his captors. In a desperate attempt to recapture him Tirdecpion urges his father to climb the mountain to the edge of the world.
+Only from a very high vantage point can Sersen call upon his super powers to "know everything that was", and help Tirdecpion to outsmart The Barbarian King.
 The only high point nearby is the mountain beyond which it is thought that nothing exists.
 In truth there lies a deep valley beyond the mountain rim, which gets veiled by mist most of the time.
 When they reach the top of the mountain a terrible tragedy takes place.
@@ -104,7 +104,7 @@ In this world Moko is very much alive and it is this Moko we continue to follow 
 Part 2: A Whole New World
 -------------------------
 
-Moko is living a similar life as he was in part 1. Still hunting The Monkey King with Tirdecpion.
+Moko is living a similar life as he was in part 1. Still hunting The Barbarian King with Tirdecpion.
 Both are unaware of the events that took place.
 
 However a tragical accident happens. Moko falls into the pit that is on the top of the Tower.
@@ -160,8 +160,8 @@ Regne tells him that her aunt Tachm might be able to help him.
 She's a prophet like Tirdecpion, but instead of telling the immediate future,
 she can tell which course in life would make him happiest.
 
-However there's a catch. Regne wants Moko to help her find her lover The Monkey King.
-Tirdecpion is keeping The Monkey King captured and together they set out to free him.
+However there's a catch. Regne wants Moko to help her find her lover The Barbarian King.
+Tirdecpion is keeping The Barbarian King captured and together they set out to free him.
 
 Moko learns that he's dead in this world and that Tirdecpion has thrown the world into chaos.
 It also becomes clear that Tirdecpion has abandoned the Tower and has moved towards the truly highest point in The Valley,
@@ -172,19 +172,19 @@ There is one such path that climbs the Valley's ridge all the way up to the stro
 Regne and Moko quickly abandon this road, because they don't want Tirdecpion to know that they're coming.
 The element of surprise is their biggest advantage.
 
-After some ordeals they to find The Monkey King in Tirdecpion's stronghold.
+After some ordeals they to find The Barbarian King in Tirdecpion's stronghold.
 To free him they have to face Tirdecpion who seems to haven't gone insane,
 but is only trying everything in his power to make The Valley a better place, protecting it from the unknown evil outside.
 Tirdecpion does regret the murder of his friend, but as Moko was manipulated by Cimsidirn he couldn't risk an attack from his friend.
-He deeply apologizes, but assures Moko that freeing The Monkey King would be a big mistake.
-Everything that has been build by Tirdecpion to defend The Valley is due to The Monkey King.
-Tirdecpion explains that the power of the Monkey King is to set the monkeys to work.
-If their enemies would get a hold on The Monkey King, they could harness the labor of the monkeys to build an army.
+He deeply apologizes, but assures Moko that freeing The Barbarian King would be a big mistake.
+Everything that has been build by Tirdecpion to defend The Valley is due to The Barbarian King.
+Tirdecpion explains that the power of the Barbarian King is to set the monkeys to work.
+If their enemies would get a hold on The Barbarian King, they could harness the labor of the monkeys to build an army.
 An army would easily overrun The Valley and destroy it.
 Without Regne and Cimsidirn to create an alternative world the Valley would fall for real this time.
 Everybody Moko loves would die a horrible death.
 
-Moko is uncertain what to do, but he can't risk killing Tirdecpion or freeing The Monkey King.
+Moko is uncertain what to do, but he can't risk killing Tirdecpion or freeing The Barbarian King.
 Instead he demands to know where Tachm is to learn about his true destiny.
 
 

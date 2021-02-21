@@ -1,4 +1,4 @@
-Plot Part 1: Hunt for the Monkey King
+Plot Part 1: Hunt for the Barbarian King
 =====================================
 
 An overview of important events in part one the main story. More details about people, places and things in [the setting](../setting/index.md)
@@ -26,13 +26,13 @@ Plunder at The Market
 Moko is at The Market in the City of Terniten after a lead from his friend the prophet Tirdecpion.
 He foretells that a violent plunder will occur at The Market today.
 Unfortunatelly his friend is rarely wrong in these matters and Moko is there to stop any violence.
-This time Moko hopes to be able to capture The Monkey King.
+This time Moko hopes to be able to capture The Barbarian King.
 The man who is thought to be behind the numberous attacks upon the city.
 
 From the wildernis that borders the market the feared attack commences.
 The city is saved from the barbarians this time due to the all seeing Tirdecpion, valliant Moko and incredible Burte
 (who is so strong she stops a spear by holding it between two fingers).
-And this time their apparent leader gets captured, when Moko sees him he immediately knows he's not The Monkey King.
+And this time their apparent leader gets captured, when Moko sees him he immediately knows he's not The Barbarian King.
 However he plans to take revenge rather than bring this man to justice.
 
 
@@ -47,7 +47,7 @@ When the prisoner only exclaims outrageous lies he looses control and starts bea
 Moko only stops when his crew catches up with them.
 
 
-A Chance to Catch the Monkey King
+A Chance to Catch the Barbarian King
 ---------------------------------
 
 Moko is embarresed for his behaviour. How could he let his emotions go like that?  
@@ -55,15 +55,15 @@ He joins his friend Tirdecpion who is surrounded by small animals when he approa
 As always Moko scares the creatures away. He doesn't have the same knack for animals as Tirdecpion.
 
 However Tirdecpion has a plan.
-The Monkey King has always been a step ahead of Tirdecpion. He has been unable to correctly anticipate the moves of the villain for years.
+The Barbarian King has always been a step ahead of Tirdecpion. He has been unable to correctly anticipate the moves of the villain for years.
 Small animals are easy to predict. They behave the same in similar circumstances and their possible reactions are limited.
-The Monkey King is the exact opposite. He's irredicate.
-He never seems to do what Tirdecpion would expect based on how The Monkey King acted before.
+The Barbarian King is the exact opposite. He's irredicate.
+He never seems to do what Tirdecpion would expect based on how The Barbarian King acted before.
 It seems that he always does something new, but it only seems that way.
-Tirdecpion now discovered that there is a pattern to The Monkey King's movements.
+Tirdecpion now discovered that there is a pattern to The Barbarian King's movements.
 That pattern is based on what happens inside the most criminal part of the city.
 Tirdecpion wants to go there and when he sees with his own eyes how the criminals are behaving.
-Then he'll be able to see where The Monkey King will be, as clear as he sees what small animals will do.
+Then he'll be able to see where The Barbarian King will be, as clear as he sees what small animals will do.
 That would be a unique opportinity to finally catch the most wanted man in Terniten.
 
 Moko thinks that Tirdecpion most be loosing his mind.
@@ -76,7 +76,7 @@ Moko becomes furious at this suggestion. Releasing the murderer of his little br
 It doesn't take Moko long to realise that he has been played.
 Terdicpion had seen that Moko would not be able to control himself when confronted with the murderer.
 So he knew that Moko would take revenge and he knew that Moko's actions would send the criminal free. 
-But instead of warning Moko, Tirdecpion has said nothing so that Terdicpion would be able to execute his plan to capture The Monkey King.
+But instead of warning Moko, Tirdecpion has said nothing so that Terdicpion would be able to execute his plan to capture The Barbarian King.
 Moko furiously storms out of the garden.
 
 
