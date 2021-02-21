@@ -87,16 +87,16 @@ Interlude 1
 It's left somewhat in the middle what happens after Tirion gives the order.
 What is unknown to the reader is that Moko indeed dies, but that another Moko exists in a parallel world.
 
-This parallel world stems from Regne and Cimsidirn, the mother and sister of Tirion, who have a super power together.
+This parallel world stems from Regne and Sinia, the mother and sister of Tirion, who have a super power together.
 Regne's power is to make paintings that depict the world as she wants them to be.
-Once finished Cimsidirn can approve a painting.
+Once finished Sinia can approve a painting.
 At that point anybody can step through this painting into the alternative world that Regne depicted.
 
-Regne and Cimsidirn often quarrel about the reality they want to live in.
+Regne and Sinia often quarrel about the reality they want to live in.
 The former is a dreamer that wants to radically change things, while the latter only wants minor adjustments.
 Some of which her reluctant daughter is unwilling to draw for her.
 However in this case they both want Tirion to be happy, unaware of the knowledge that brought him to fear and violence.
-Regne made this painting and Cimsidirn approved it.
+Regne made this painting and Sinia approved it.
 They stepped through the painting and into the world where part 2 is taking place.
 In this world Moko is very much alive and it is this Moko we continue to follow in the story.
 
@@ -122,10 +122,10 @@ As the painting is signed it's clear that Regne made it.
 Moko starts questioning Burte about what this place is, how come this is not the beginning and end of all things and what's happened to Regne's painting.
 Burte evades his questions, by answering she's not allowed to answer questions to anyone about this place,
 but not being very bright she answers the question: "who has told you to keep secret, the person who told you to keep this place secret?"
-That turns out to be Cimsidirn. Mother of Tirion and Regne.
+That turns out to be Sinia. Mother of Tirion and Regne.
 
-Moko confronts Cimsidirn with the secret place demanding to know more.
-Cimsidirn seems reluctant to tell the truth and in her role of Mother of the City,
+Moko confronts Sinia with the secret place demanding to know more.
+Sinia seems reluctant to tell the truth and in her role of Mother of the City,
 she advices him to turn away from this for his own happiness and to never tell a soul.
 He does so reluctantly and it's hard not to tell anything about this to his wife.
 His wife however feels that something is wrong and starts pressing Moko.
@@ -139,7 +139,7 @@ Indeed not long thereafter assassins enter Regne's house trying to kill Moko,
 but thanks to Regne who the assassins seem to spare at all costs Moko defeats the assassins during a chaise around the city.
 
 When they're catching their breath from the homocide attempt Regne explains he's got to come with her.
-It's the only way to make things right. Cimsidirn is behind the attack and she wont rest until Moko is dead.
+It's the only way to make things right. Sinia is behind the attack and she wont rest until Moko is dead.
 When Moko asks what they're going to do Regne simply says he won't believe her until he sees it for himself.
 She promises to explain everything, but now they have no time to loose.
 
@@ -151,10 +151,10 @@ Once in the secret cave and outside the water Regne beckons Moko to follow her t
 As Moko steps through the painting he's unaware that he enters a world that is in more turmoil than the one he's leaving.
 
 It takes Moko and Regne a lot of effort to climb out of The Tower and leave the place without being seen.
-Once in a safe place Regne explains to Moko that it was Cimsidirn who convinced Tirion that Moko was a traitor.
+Once in a safe place Regne explains to Moko that it was Sinia who convinced Tirion that Moko was a traitor.
 Her power is to be right even when she's wrong.
 Furthermore Regne explains her own power is to create alternative worlds
-and that they're currently in a world that Cimsidirn wants to abandon.
+and that they're currently in a world that Sinia wants to abandon.
 Moko is more than a little desperate and has no idea what to do next.
 Regne tells him that her aunt Tachm might be able to help him.
 She's a prophet like Tirion, but instead of telling the immediate future,
@@ -175,13 +175,13 @@ The element of surprise is their biggest advantage.
 After some ordeals they to find The Barbarian King in Tirion's stronghold.
 To free him they have to face Tirion who seems to haven't gone insane,
 but is only trying everything in his power to make The Valley a better place, protecting it from the unknown evil outside.
-Tirion does regret the murder of his friend, but as Moko was manipulated by Cimsidirn he couldn't risk an attack from his friend.
+Tirion does regret the murder of his friend, but as Moko was manipulated by Sinia he couldn't risk an attack from his friend.
 He deeply apologizes, but assures Moko that freeing The Barbarian King would be a big mistake.
 Everything that has been build by Tirion to defend The Valley is due to The Barbarian King.
 Tirion explains that the power of the Barbarian King is to set the monkeys to work.
 If their enemies would get a hold on The Barbarian King, they could harness the labor of the monkeys to build an army.
 An army would easily overrun The Valley and destroy it.
-Without Regne and Cimsidirn to create an alternative world the Valley would fall for real this time.
+Without Regne and Sinia to create an alternative world the Valley would fall for real this time.
 Everybody Moko loves would die a horrible death.
 
 Moko is uncertain what to do, but he can't risk killing Tirion or freeing The Barbarian King.

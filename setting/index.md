@@ -78,24 +78,24 @@ Girlfriend of Tirion.
 She hates men and many men hate her, because she is clearly superior to them.
 
 
-Cimsidirn Otar (Scrator Dinimi)
+Sinia Otar (Scrator Dinimi)
 -------------------------------
 
 Queen of The City and mother to Tirion.
 
-Cimsidirn's power is to know what is right and what is wrong.
+Sinia's power is to know what is right and what is wrong.
 In a way she looks into the future like Tirion, but instead of knowing what will happen she knows whether a choice will have a good or a bad outcome.
-Cimsidirn is seen as a benevolent ruler, who has brought prosperity and has guided many people to a happy fulfilling life.
-However her dark side is that Cimsidirn benefits most from the choices that Cimsidirn makes herself and recommends to others.
-The monkeys are often drawing the short end and suffer under Cimsidirn's rule, without realising she is causing their suffering.
+Sinia is seen as a benevolent ruler, who has brought prosperity and has guided many people to a happy fulfilling life.
+However her dark side is that Sinia benefits most from the choices that Sinia makes herself and recommends to others.
+The monkeys are often drawing the short end and suffer under Sinia's rule, without realising she is causing their suffering.
 
 
 The Barbarian King
 ---------------
 
 He's the inspiration for all monkeys, who will work with vigor as long as he's around.
-Cimsidirn knows how he inspires the workers that she relies upon and tries to capture The Barbarian King for more personal gain.
-In order to get away with this Cimsidirn pretends that The Barbarian King is an evil villain that must be stopped.
+Sinia knows how he inspires the workers that she relies upon and tries to capture The Barbarian King for more personal gain.
+In order to get away with this Sinia pretends that The Barbarian King is an evil villain that must be stopped.
 
 
 Regne Otar
@@ -107,18 +107,18 @@ Posesses one of the strongest super powers, but it's kept secret and therefor sh
 Her power is in fact to create very life like paintings, which can become portals to alternative realities when you touch their canvases.
 When somebody steps through these portals they see the reality they left behind on the canvas on the other side.
 
-A big downside for Regne is that only her mother Cimsidirn can turn one of her paintings into a portal.
+A big downside for Regne is that only her mother Sinia can turn one of her paintings into a portal.
 Therefor she relies a lot on her mother and recents that she can't create the reality that she truly wants.
 A reality where she and The Barbarian King are happily in love with each other.
 Her mother deems a marriage between her daughter and a monkey unfit.
-The many paintings that depict Regne and The Barbarian King in each others arms stand in a dusty basement unapproved by Cimsidirn.
+The many paintings that depict Regne and The Barbarian King in each others arms stand in a dusty basement unapproved by Sinia.
 The denial of Regne's love for The Barbarian King only makes it stronger.
 
 
 House of Nitra
 --------------
 
-Serson, Tirion, Regne, Cimsidirn and Burte (by marriage) are all part of the House of Nitra.
+Serson, Tirion, Regne, Sinia and Burte (by marriage) are all part of the House of Nitra.
 
 
 House of Wal
