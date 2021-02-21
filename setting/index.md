@@ -60,31 +60,31 @@ The higher Sorsen meditates the more he gets to know about the world.
 Sorsen is a devoted man to Atad and feels a moral obligation to bring the knowledge of Atad to the world.
 
 
-Tirdecpion
+Tirion
 ----------
 
-Son of Sorsen. Whenever his father climbs The Tower of Atad to call upon the power of Atad it's Tirdecpion that goes up to help.
-Tirdecpion supports his old father on the way down, because Sorsen gets severly weakened when Atad forcefully enters his body.
-When Sorsen puts an arm around his son, Tirdecpion can feel some of the power flow into him.
-The Atad gives him the blessing and curse of foresight. For some time Tirdecpion can say exactly what is going to happen before it does.
-Tirdecpion uses this foresight to outsmart most people.
+Son of Sorsen. Whenever his father climbs The Tower of Atad to call upon the power of Atad it's Tirion that goes up to help.
+Tirion supports his old father on the way down, because Sorsen gets severly weakened when Atad forcefully enters his body.
+When Sorsen puts an arm around his son, Tirion can feel some of the power flow into him.
+The Atad gives him the blessing and curse of foresight. For some time Tirion can say exactly what is going to happen before it does.
+Tirion uses this foresight to outsmart most people.
 
 
 Burte
 ------
 
 A woman of infinite strength, speed and stupidity who handles all the choires in the city that no monkey can or will do.
-Girlfriend of Tirdecpion.
+Girlfriend of Tirion.
 She hates men and many men hate her, because she is clearly superior to them.
 
 
 Cimsidirn Otar (Scrator Dinimi)
 -------------------------------
 
-Queen of The City and mother to Tirdecpion.
+Queen of The City and mother to Tirion.
 
 Cimsidirn's power is to know what is right and what is wrong.
-In a way she looks into the future like Tirdecpion, but instead of knowing what will happen she knows whether a choice will have a good or a bad outcome.
+In a way she looks into the future like Tirion, but instead of knowing what will happen she knows whether a choice will have a good or a bad outcome.
 Cimsidirn is seen as a benevolent ruler, who has brought prosperity and has guided many people to a happy fulfilling life.
 However her dark side is that Cimsidirn benefits most from the choices that Cimsidirn makes herself and recommends to others.
 The monkeys are often drawing the short end and suffer under Cimsidirn's rule, without realising she is causing their suffering.
@@ -101,7 +101,7 @@ In order to get away with this Cimsidirn pretends that The Barbarian King is an 
 Regne Otar
 ----------
 
-Sister of Tirdecpion.
+Sister of Tirion.
 
 Posesses one of the strongest super powers, but it's kept secret and therefor she seems to have no special talent, accept drawing beautifully.
 Her power is in fact to create very life like paintings, which can become portals to alternative realities when you touch their canvases.
@@ -118,7 +118,7 @@ The denial of Regne's love for The Barbarian King only makes it stronger.
 House of Nitra
 --------------
 
-Serson, Tirdecpion, Regne, Cimsidirn and Burte (by marriage) are all part of the House of Nitra.
+Serson, Tirion, Regne, Cimsidirn and Burte (by marriage) are all part of the House of Nitra.
 
 
 House of Wal
@@ -131,7 +131,7 @@ Moko Wal
 ---------
 
 A strong rightuous man from the House of Wal.
-Friend of Tirdecpion.
+Friend of Tirion.
 
 
 Cetisuj Wal
@@ -151,5 +151,5 @@ The Top of the World
 
 A point on the edge of the world that is higher than The Tower of Atam.
 When Serson climbs a mountain to refresh his knowledge and reaches this point, The Atad that strikes him comes from outside The Valley.
-As Tirdecpion gets the knowledge from his father like he always does he goes insane.
+As Tirion gets the knowledge from his father like he always does he goes insane.
 
