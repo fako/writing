@@ -31,8 +31,8 @@ The Jungle
 Everything outside of The City of Terniten, but inside The Valley.
 
 
-The Monkeys
------------
+The Barbarians
+--------------
 
 A group of poor people that live in misery, but are the driving force behind the wealth of The City of Terniten.
 Their home is The Jungle, but they come to the city to work every day.
@@ -61,7 +61,7 @@ Sorsen is a devoted man to Atad and feels a moral obligation to bring the knowle
 
 
 Tirion
-----------
+------
 
 Son of Sorsen. Whenever his father climbs The Tower of Atad to call upon the power of Atad it's Tirion that goes up to help.
 Tirion supports his old father on the way down, because Sorsen gets severly weakened when Atad forcefully enters his body.
@@ -73,33 +73,33 @@ Tirion uses this foresight to outsmart most people.
 Burte
 ------
 
-A woman of infinite strength, speed and stupidity who handles all the choires in the city that no monkey can or will do.
+A woman of infinite strength, speed and stupidity who handles all the choires in the city that no else can or will do.
 Girlfriend of Tirion.
 She hates men and many men hate her, because she is clearly superior to them.
 
 
-Sinia Otar (Scrator Dinimi)
--------------------------------
+Sinia
+-----
 
-Queen of The City and mother to Tirion.
+Queen of The City of Terniten and mother to Tirion and Tera.
 
 Sinia's power is to know what is right and what is wrong.
 In a way she looks into the future like Tirion, but instead of knowing what will happen she knows whether a choice will have a good or a bad outcome.
 Sinia is seen as a benevolent ruler, who has brought prosperity and has guided many people to a happy fulfilling life.
 However her dark side is that Sinia benefits most from the choices that Sinia makes herself and recommends to others.
-The monkeys are often drawing the short end and suffer under Sinia's rule, without realising she is causing their suffering.
+The barbarians are often drawing the short end and suffer under Sinia's rule, without realising she is causing their suffering.
 
 
 The Barbarian King
----------------
+------------------
 
 He's the inspiration for all monkeys, who will work with vigor as long as he's around.
 Sinia knows how he inspires the workers that she relies upon and tries to capture The Barbarian King for more personal gain.
 In order to get away with this Sinia pretends that The Barbarian King is an evil villain that must be stopped.
 
 
-Tera Otar
-----------
+Tera
+----
 
 Sister of Tirion.
 
@@ -110,7 +110,7 @@ When somebody steps through these portals they see the reality they left behind 
 A big downside for Tera is that only her mother Sinia can turn one of her paintings into a portal.
 Therefor she relies a lot on her mother and recents that she can't create the reality that she truly wants.
 A reality where she and The Barbarian King are happily in love with each other.
-Her mother deems a marriage between her daughter and a monkey unfit.
+Her mother deems a marriage between her daughter and a barbarian unfit.
 The many paintings that depict Tera and The Barbarian King in each others arms stand in a dusty basement unapproved by Sinia.
 The denial of Tera's love for The Barbarian King only makes it stronger.
 
@@ -124,7 +124,7 @@ Serson, Tirion, Tera, Sinia and Burte (by marriage) are all part of the House of
 House of Wal
 ------------
 
-A household in The City who are looking to protect The Monkeys from harm.
+A household in The City who are looking to protect The Barbarians from harm.
 
 
 Moko Wal
