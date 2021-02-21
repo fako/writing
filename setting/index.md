@@ -98,7 +98,7 @@ Sinia knows how he inspires the workers that she relies upon and tries to captur
 In order to get away with this Sinia pretends that The Barbarian King is an evil villain that must be stopped.
 
 
-Regne Otar
+Tera Otar
 ----------
 
 Sister of Tirion.
@@ -107,18 +107,18 @@ Posesses one of the strongest super powers, but it's kept secret and therefor sh
 Her power is in fact to create very life like paintings, which can become portals to alternative realities when you touch their canvases.
 When somebody steps through these portals they see the reality they left behind on the canvas on the other side.
 
-A big downside for Regne is that only her mother Sinia can turn one of her paintings into a portal.
+A big downside for Tera is that only her mother Sinia can turn one of her paintings into a portal.
 Therefor she relies a lot on her mother and recents that she can't create the reality that she truly wants.
 A reality where she and The Barbarian King are happily in love with each other.
 Her mother deems a marriage between her daughter and a monkey unfit.
-The many paintings that depict Regne and The Barbarian King in each others arms stand in a dusty basement unapproved by Sinia.
-The denial of Regne's love for The Barbarian King only makes it stronger.
+The many paintings that depict Tera and The Barbarian King in each others arms stand in a dusty basement unapproved by Sinia.
+The denial of Tera's love for The Barbarian King only makes it stronger.
 
 
 House of Nitra
 --------------
 
-Serson, Tirion, Regne, Sinia and Burte (by marriage) are all part of the House of Nitra.
+Serson, Tirion, Tera, Sinia and Burte (by marriage) are all part of the House of Nitra.
 
 
 House of Wal
