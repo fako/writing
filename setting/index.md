@@ -90,12 +90,13 @@ However her dark side is that Sinia benefits most from the choices that Sinia ma
 The barbarians are often drawing the short end and suffer under Sinia's rule, without realising she is causing their suffering.
 
 
-The Barbarian King
-------------------
+Xite
+----
 
-He's the inspiration for all monkeys, who will work with vigor as long as he's around.
-Sinia knows how he inspires the workers that she relies upon and tries to capture The Barbarian King for more personal gain.
-In order to get away with this Sinia pretends that The Barbarian King is an evil villain that must be stopped.
+Xite is believed to be the ultimate evil and a danger to the world itself.
+It is thought that wherever Xite goes a horde of killing and plundering barbarians follow.
+That's why he's better known as "The Barbarian King" a title that strikes fear into the hearts of everybody.
+The fact that nobody really knows what he looks like adds to the mystery of Xite and the fear surrounding him.
 
 
 Tera
