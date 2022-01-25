@@ -4,68 +4,89 @@ Plot
 An outline of the story of the trilogy. Between the three parts there are interludes.
 What happens between these interludes is only known to the reader by what is told about them in the main parts of the trilogy.
 
-Currently the story is maybe half way.
-The first two parts are somewhat finished, but are expected to change as the third part takes shape.
-The heros journey will need to get updated as well as it's not quite there yet.
+Currently the story is maybe on two thirds.
+The first and last part are taking shape, but the middle needs more work.
 
 
 Hero: Moko
 -----------
 
-The person we follow in this trilogy is Moko. His dilemma is that of activism versus pacifism.
-To (forcefully) act, change the world and risk doing more harm than good.
-Or to (helplessly) wait, see the world change and risk the decay of the things you love.
+The person we follow in this trilogy is Moko.
+He develops from being a vengeful short sighted individual into a wise thoughtful man,
+who takes his role in society as judge with the utmost vigilance.
 
-During the story Moko develops an understanding that it's impossible to tell right from wrong
-and that such classifications depend on your point of view.
-He learns that an open mind and heart will bring you fartest in life.
+In part I Moko is convinced that he is "The One" and that he's destined to deliver the world from evil.
+In part II he starts to realize that the role he has to play in this world is more elaborate than he initially thought.
+In part III he fully realizes that, although the answers to many problems in the world can not be solved with destiny and violence,
+he does have an important role to play as a sincere, thoughtful individual that fights for justice peacefully.
 
 
 Part 1: Hunt for the Barbarian King
---------------------------------
+-----------------------------------
 
 Everywhere The Barbarian King goes he plunders, assaults and rapes the population.
-Many men follow him into this destructive life, resulting in a savage mob of "monkeys" that terrorize everybody.
+Many men follow him into this destructive life, resulting in a savage mob of barbarians that terrorize everybody.
 
-Moko is the man responsible for stopping The Barbarian King.
-It's his duty to confront him, capture him alive and bring him to The Tower, where he shall receive judgement.
+Moko is The One who is destined to stop The Barbarian King and his horde of fellow criminals.
+It is foretold that Moko will strike The Barbarian King down in an epic battle where everybody else has failed.
+Amongst his peers Moko stands in high redeem and people can't wait to get rid of the evil that has haunt their lives for so long.
 
 A big problem is that Moko does not know where to find The Barbarian King.
 Whenever Moko hears where he might be he goes there and finds nobody. Moko has never even seen The Barbarian King.
-It's almost as if he doesn't exist, but the horrible stories coming from his victims tell otherwise.
+It's almost as if he doesn't exist, but the horrible stories coming from the victims of the barbaric pillaging tell otherwise.
 
 Moko gets help to find The Barbarian King from his friend Tirion and Sersen, who is Tirion's father.
 Sersen is an old man, but he regularly climbs The Tower to call upon his super powers. Which is to know everything that was.
-Through the bond of love that he has with his son, Sersen transfers some of his knowledge to Tirion, which awakens his super power to predict the future.
+Through the bond of love that he has with his son, Sersen transfers some of his knowledge to Tirion,
+which awakens his super power to predict the future.
 However since the foresight of Tirion is not perfect the present unfolds itself to be slightly different from what Tirion expects.
 As time passes these differences become bigger and bigger, until he re-connects with the historic knowledge from his father.
 So far Tirion hasn't been able to pin point where The Barbarian King will be accurately.
 
 At the start of the story however Tirion comes up with a plan to finally capture the villain.
 By visting certain locations and looking for signs at these places Tirion is certain he can deduct where The Barbarian King will be,
-based on where The Monkey was when those signs occured in the past.
+based on where The Barbarion King was when those signs occured in the past.
 Everybody thinks it is an ingenious plan and they gather a small group to accompany Moko and Tirion on their quest to bring The Barbarian King to justice.
 
-These places that Tirion needs to visit to look for signs, turn out to be a lot more dangerous than Moko signed up for.
-After many close encounters with death they finally arrive where The Barbarian King should be.
-Unfortunetaly he's not and Moko is more than a little angry for putting everybodies lives on the line for yet another failure.
-Disillusioned they return home when they hear growls and soft screams from the bushes.
-They approach carefully and see a man making love to a women in an intense way, which both seem to enjoy.
-When Sersen catches up he sees immediatelly that the man is The Barbarian King.
+These places that Tirion needs to visit to look for signs, turn out to be a lot more dangerous than Tirion let on.
+They involve encounters with:
+* Hordes of barbarians
+* Confronting a notorious crime family
+* Visiting a dragon's lair
+After many close encounters with death Tirion sees all the signs he needs to predict the time and location where The Barbarian King should be.
+and finally arrive where The Barbarian King should be.
+Unfortunetaly when they arrive at the right place at the right time The Barbarian King is nowhere in sight.
+Moko gets increasingly desparate. When is he going to fulfill his destiny?
 
-They capture The Barbarian King and contemplate on executing him on the spot.
-Although the hate for the villain runs deep they decide to bring him to The Tower for trial instead.
+Disillusioned the group set out to find The Barbarian King return home, but on their way they get ambushed by Barbarians.
+They have a hard time defending themselves as Burte falls unconscious.
+Without their strongest fighter the group seems to become overwhelmed.
+When Moko gets cornered against numbers he can't possibly defeat a mysterious man interposes himself between Moko and the barbarians.
+Moko can only watch flabbergasted how enraged barbarians throw themselves at the mysterious man, who not only paries all attacks, but shatters the barbarians to dust as counter attacks hit home.
+Despite their losses the barbarians relentlessly attack their foe until all barbarians have turned to dust.
+When Moko wants to thank the stranger Sorsen yells to Moko to kill the man, because he is The Barbarian King.
+Upon hearing this the man flees and Moko persuits, but only half heartilly and The Barbarian King soon disappears into the jungle.
 
-However The Barbarian King escapes his captors. In a desperate attempt to recapture him Tirion urges his father to climb the mountain to the edge of the world.
-Only from a very high vantage point can Sersen call upon his super powers to "know everything that was", and help Tirion to outsmart The Barbarian King.
-The only high point nearby is the mountain beyond which it is thought that nothing exists.
-In truth there lies a deep valley beyond the mountain rim, which gets veiled by mist most of the time.
-When they reach the top of the mountain a terrible tragedy takes place.
+***doubt***
+In a desperate attempt to recapture The Barbarian King, Tirion urges his father to climb the mountain to the edge of the world.
+Only from a very high vantage point can Sorsen call upon his super powers to "know everything that was",
+and help Tirion to outsmart The Barbarian King.
+The only high point nearby is known as the edge of the world.
+This mountain range lies around the world as the characters now it. Beyond it nothing exists according to their lore.
+In truth their world is nothing but a valley that lies on the peak of a steep mountain.
+The world below this mountain gets veiled by mist most of the time and people that descended along the mountain walls never returned.
+When the group reaches the rim of the mountain a terrible tragedy takes place.
 
-When Sersen is using his super powers he's actually at a higher vantage point than The Tower.
-Therefor he receives much more knowledge than usual.
-Even about places beyond the valley our hero's live in and Sersen didn't even know existed. He's entirely overwelmed by this knowledge.
+As Sorsen is calling upon Atad to tell him everything that happened, he's actually at a higher vantage point than The Tower, where he normally convokes his powers.
+Therefor he receives much more knowledge than usual, even about places beyond the valley our heroes live in and Sorsen didn't know existed.
+Sorsen is entirely overwelmed by this knowledge.
 He still manages to transfer his knowledge to Tirion, but he dies soon after.
+
+
+*********************
+to be changed here
+*********************
+
 
 Apart from being torn by the loss of his father all the new knowledge is very confusing to Tirion.
 Outside of the world that he knows there are apparently much more people and places, with weird alien habits that don't make sense.
@@ -82,6 +103,18 @@ This is where part 1 ends.
 
 
 Interlude 1
+-----------
+
+
+
+
+Part 2: A Whole New World
+-------------------------
+
+
+
+
+Interlude 2
 -----------
 
 It's left somewhat in the middle what happens after Tirion gives the order.
@@ -101,7 +134,7 @@ They stepped through the painting and into the world where part 2 is taking plac
 In this world Moko is very much alive and it is this Moko we continue to follow in the story.
 
 
-Part 2: A Whole New World
+Part 3: A Whole New World
 -------------------------
 
 Moko is living a similar life as he was in part 1. Still hunting The Barbarian King with Tirion.

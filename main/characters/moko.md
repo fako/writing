@@ -28,4 +28,9 @@ There are also some things that he could learn, but that do not have a correspon
 * Moko realises that not everything is as it seems
 * Moko realises that some decisions once made can't be undone
 * Moko realises that with great power comes great responsibility
-
+* Good luck is not equal to extraordinary skill
+* Don't blame the circumstances if your own failures are an explanation
+* Separation of church and state
+* Just because something doesn't suit you doesn't mean you should ignore it (cognitive disonance)
+* Context is a major factor in influencing our behavior (like graffiti on walls that incite other criminal behavior)
+* We have a perpatual desire to change things in our environment (Thomas Hobbes?)
