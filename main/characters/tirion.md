@@ -1,7 +1,7 @@
 Tirion (The Seer)
 =================
 
-Friend of [Moko (The One)](moko.md) and partner in finding the evil [Barbarian King](xite.md).
+Friend of [Moko (The One)](moko.md) and partner in finding the evil [Savage King](xite.md).
 A prince, very intelligent, with a love for nature.
 
 
@@ -22,14 +22,14 @@ Because he's so good at predicting it he favours the natural world over society.
 Storyline
 ---------
 
-In the beginning Tirion sincerly wants to help [Moko (The One)](moko.md) at defeating [Xite (The Barbarian King)](xite.md).
+In the beginning Tirion sincerly wants to help [Moko (The One)](moko.md) at defeating [Xite (The Savage King)](xite.md).
 The prophecy that Moko is the one comes from him and he full heartly believes it.
 In reality his mother [Sinia (The Queen)](sinia.md) tricked Tirion into seeing this prophecy and there is no merit to it.
 The true goal of the prophecy is to get rid of Moko once and for all in order for Sinia to rule unchallenged and without boundaries.
-If Moko would ever attack Xite he would surely die as The Barbarian King posseses the power to redirect any attack back to his attacker.
+If Moko would ever attack Xite he would surely die as The Savage King posseses the power to redirect any attack back to his attacker.
 Xite has limited control over this power.
 So even though Xite would never want to harm Moko, he would do so by accident if Moko ever voluntarily attacks, because he thinks he's destined for it.
-However [Xite (The Barbarian King)](xite.md) learned about the ruse from [The Queen](sinia.md) through the princes [Tera (The Artist)](tera.md), who is in love with him.
+However [Xite (The Savage King)](xite.md) learned about the ruse from [The Queen](sinia.md) through the princes [Tera (The Artist)](tera.md), who is in love with him.
 To protect Moko, Xite fled the city and Tirion and Moko have been chasing him ever since.
 It turns out to be very hard to find Xite, partly because he doesn't want to be found and partly because Tera keeps helping him.
 

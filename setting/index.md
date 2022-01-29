@@ -31,7 +31,7 @@ The Jungle
 Everything outside of The City of Terniten, but inside The Valley.
 
 
-The Barbarians
+The Savages
 --------------
 
 A group of poor people that live in misery, but are the driving force behind the wealth of The City of Terniten.
@@ -95,7 +95,7 @@ Xite
 
 Xite is believed to be the ultimate evil and a danger to the world itself.
 It is thought that wherever Xite goes a horde of killing and plundering barbarians follow.
-That's why he's better known as "The Barbarian King" a title that strikes fear into the hearts of everybody.
+That's why he's better known as "The Savage King" a title that strikes fear into the hearts of everybody.
 The fact that nobody really knows what he looks like adds to the mystery of Xite and the fear surrounding him.
 
 
@@ -110,10 +110,10 @@ When somebody steps through these portals they see the reality they left behind 
 
 A big downside for Tera is that only her mother Sinia can turn one of her paintings into a portal.
 Therefor she relies a lot on her mother and recents that she can't create the reality that she truly wants.
-A reality where she and The Barbarian King are happily in love with each other.
+A reality where she and The Savage King are happily in love with each other.
 Her mother deems a marriage between her daughter and a barbarian unfit.
-The many paintings that depict Tera and The Barbarian King in each others arms stand in a dusty basement unapproved by Sinia.
-The denial of Tera's love for The Barbarian King only makes it stronger.
+The many paintings that depict Tera and The Savage King in each others arms stand in a dusty basement unapproved by Sinia.
+The denial of Tera's love for The Savage King only makes it stronger.
 
 
 House of Nitra
@@ -125,7 +125,7 @@ Serson, Tirion, Tera, Sinia and Burte (by marriage) are all part of the House of
 House of Wal
 ------------
 
-A household in The City who are looking to protect The Barbarians from harm.
+A household in The City who are looking to protect The Savages from harm.
 
 
 Moko Wal

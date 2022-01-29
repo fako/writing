@@ -19,7 +19,7 @@ For example they may wake up not in their familiar house and village, but in the
 This world is familiar to these people as it mostly resembles the world they know, but at the same time completely alien,
 because they don't fulfill any role in the society where they end up.
 Some people adjust to this new scenario and start a new life, but most are completely lost, unable to cope and oppose this new world violently in the hope to overthrow and change the world in their advantage.
-They become part of the group of Barbarians.
+They become part of the group of Savages.
 
 The downside to Tera's power is that creating a world is so complex that she can't possibly control everything.
 She regularly has found that worlds she tried to create have turned out differently than she imagined.
@@ -29,10 +29,10 @@ To escape what she thought would be an amazing world to live in.
 Her only way to deal with this problem and create worlds that benefit her is to trust her mother [Sinia](sinia.md).
 Because Sinia can now whether a choice will have a good or bad outcome for the person involved Sinia can help Tera create worlds that benefit her.
 Of course Sinia makes sure that these worlds also benefit her.
-A reality where she and The Barbarian King are happily in love with each other is something Tera strongly desires,
+A reality where she and The Savage King are happily in love with each other is something Tera strongly desires,
 but Sinia will keep her away from.
-Many paintings that depict Tera and The Barbarian King in each others arms stand in a dusty basement, but Tera fears to step through them,
+Many paintings that depict Tera and The Savage King in each others arms stand in a dusty basement, but Tera fears to step through them,
 because Sinia refuses to go with her and warns her for suffering.
 Instead she waits for Xite to come to her.
-This procrastination of Tera's love for The Barbarian King only makes it stronger.
+This procrastination of Tera's love for The Savage King only makes it stronger.
 
