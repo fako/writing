@@ -25,17 +25,17 @@ In between different locations within the city are large patches of wildernis wh
 Apart from this wildernis there are some crime invested parts, where most people won't go unless they absolutely have to be there.
 
 
-The Jungle
-----------
+The Wilds
+---------
 
 Everything outside of The City of Terniten, but inside The Valley.
 
 
 The Savages
---------------
+-----------
 
 A group of poor people that live in misery, but are the driving force behind the wealth of The City of Terniten.
-Their home is The Jungle, but they come to the city to work every day.
+Their home is The Wilds, but they come to the city to work every day.
 
 
 The Tower of Atad
@@ -119,26 +119,13 @@ The denial of Tera's love for The Savage King only makes it stronger.
 House of Nitra
 --------------
 
-Serson, Tirion, Tera, Sinia and Burte (by marriage) are all part of the House of Nitra.
+Sorsen, Tirion, Tera, Sinia and Burte (by marriage) are all part of the House of Nitra.
 
 
-House of Wal
-------------
+Moko
+----
 
-A household in The City who are looking to protect The Savages from harm.
-
-
-Moko Wal
----------
-
-A strong rightuous man from the House of Wal.
-Friend of Tirion.
-
-
-Cetisuj Wal
-----------
-
-A considerate honest women from the House of Wal. Wife of Moko.
+A rightuous man. Friend of Tirion. Main character of the story.
 
 
 Encinneco
@@ -150,7 +137,7 @@ Brother of Moko who died not very long ago.
 The Top of the World
 --------------------
 
-A point on the edge of the world that is higher than The Tower of Atam.
-When Serson climbs a mountain to refresh his knowledge and reaches this point, The Atad that strikes him comes from outside The Valley.
+A point on the edge of the world that is higher than The Tower of Atad.
+When Sorsen climbs a mountain to refresh his knowledge and reaches this point, The Atad that strikes him comes from outside The Valley.
 As Tirion gets the knowledge from his father like he always does he goes insane.
 
