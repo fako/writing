@@ -1,7 +1,7 @@
-Plot Part 1: Hunt for the Savage King
+Plot Part I: Hunt for the Savage King
 =====================================
 
-An overview of important events in part one the main story. More details about people, places and things in [the setting](../setting/index.md)
+An overview of important events in part one of the main story. More details about people, places and things in [the setting](../setting/index.md)
 
 
 Introduction: Climbing the Tower
