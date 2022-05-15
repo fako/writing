@@ -2,8 +2,8 @@ Sinia (The Queen)
 =================
 
 Evil queen of The Valley. 
-She rules by lying to her people, acting as if her policies benefit all, while in fact it mostly benefits her and her family.
-The barbarians are often drawing the short end and suffer under Sinia's rule, without them realising she is causing their suffering.
+She rules by lying to her people, acting as if her policies benefit all, while in fact it mostly benefits her, her family and the rich.
+The poor are often drawing the short end and suffer under Sinia's rule, without them realising she is causing their suffering.
 
 
 Power
