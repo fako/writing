@@ -16,8 +16,8 @@ This wonderous city is a distributed city.
 Instead of having a city center and slowly expanding over time, this city is vastly spread out across the entire Valley.
 People can "jump" from sight to sight inside the city through teleportation portals.
 It is for instance possible to jump from The Palace to The Tower and back.
-There is some urban area directly around portals, but between them there are large patches of wilderness
-and no roads connect these sights directly.
+There is some urban area and farm land directly around portals, but between them there are large patches of wilderness
+and no roads connect sights within Terniten directly.
 Most people don't dare to venture into the wilderness.
 However instead of traversing the wilderness, people can travel between sights in the city simply by walking through these portals,
 which are guarded by the city guards and can only be used against a fee.
@@ -61,7 +61,7 @@ Because of this her subjects often seek her advice in all sorts of issues.
 From settling quarrels in families to handling matters of state, Sinia is consulted in most cases,
 because her proposed solutions always lead to satisfaction.
 It easy to see how her subjects adore her and her rule is completely uncontested.
-The valley used to be democratic, but it was Sinia who convinced everybody that making her queen would make everybody happier.
+The Valley used to be democratic, but it was Sinia who convinced people that making her queen would make everybody happier.
 And even though it can't be contested that satisfaction has risen under her rule,
 a complete lack of democratic control is slowly rotting society in The Valley from the inside out.
 
@@ -82,13 +82,13 @@ Which made all powerful merchants that could have spoken up against the monarchy
 They didn't need to ask Sinia to know it was in their best interest to get along with the monarchy and profit while the music was still playing.
 
 Although her role as Queen Consult is by far the most prevalent way for Sinia to exercise control in The Valley,
-there is another more secretive way in which Queen Sinia hold The Valley in her grip.
-This is through her daughter Tera, who seems very ordinary compared to other members of the family,
+there is another more secretive way in which Queen Sinia holds The Valley in her grip.
+This is through her daughter Tera, who seems very ordinary compared to other members of the royal family,
 but only because she is so powerful that her abilities are kept deeply secret.
-Not only from the public, but from members of the royal family as well.
+Not only from the public, but from other members of the royal family as well.
 
 Tera is an artist who makes huge lifelike paintings depicting society as she would like to see it.
-Together with her mother Tera can step into these paintings which then become reality.
+Together with her mother, Tera can step into these paintings which then become reality.
 In a way these paintings act as gateways to alternative realities.
 Realities that get shaped by the artist Tera.
 Tera and Sinia often work together on what these realities should be,
@@ -97,19 +97,19 @@ Needless to say some friction between mother and daughter arise when their inter
 Tera is too grown up to believe that her mother always has her best interest at heart
 and often doubts her mothers advice even if it is truly in her best interest.
 This dynamic mostly plays out around relationships of Tera.
-She often falls in love with men that ultimately will treat her badly, but any advice against them can meet with scepticism from Tera's side.
+She regularly falls in love with men that ultimately will treat her badly, but any advice against them can meet with scepticism from Tera's side.
 Meanwhile Sinia really doesn't want Tera to start a relationship that would threaten the bond between them,
 fearing the day that together with a spouse that truly loves her Tera would rebel against her mother and refuse to cooperate entirely.
 So Sinia's advice does steer away from such relationships, even if they could bring her daughter happiness.
-While paintings where Tera depicts herself in a happy relationship end up in storage,
+Meanwhile paintings where Tera depicts herself in a happy relationship end up in storage,
 because Sinia refuses to step into them with her daughter, and therefor refuses for them to become reality.
 
 
 The Zombie Society
 ------------------
 
-An issue that Sinia and Tera agree on is a problem for both of them
-and that they need to solve together is the constant influx of mindless savage clones into their society,
+An issue that Sinia and Tera agree on is a problem for both of them,
+and that they need to solve together, is the constant influx of mindless savage clones into their society,
 through the constant use of teleportation portals in The City of Terniten.
 When exact copies of the royal family are turning havoc in the urban areas terrorizing the local population,
 then that's not good for the royal families image.
@@ -118,7 +118,36 @@ For Tera to change something she has to depict it. Anything she doesn't depict w
 However she can't depict something that she wants to disappear as this would look like nothing
 and anything that isn't on her paintings remains the same. 
 Leaving out the clones in her paintings therefore would only lead to them remaining as they are and therefore remain a problem.
-Their solution is to make the clones appear as zombies.
+Sinia's and Tera's solution is to make the clones appear as zombies.
 Making the clones look like evil monsters rallies the population of The Valley against them,
 which try to destroy them on sight and effectively kill the clones, who have done nothing but survive, while they weren't supposed to.
+
+This plan isn't flawless, because the zombies are actually humans that experience all emotions,
+they are often as scared of inhabitants of The Valley as the inhabitants are scared of the zombie appearance.
+This leads to some zombies leading secluded lives in the wilderness, learning how to forage,
+and instead of suffering a violent death even reproduce amongst themselves.
+Initially born like any normal human being, the children that come from zombies can sometimes be seen playing between the dead from afar,
+which gives rise to many legends about how the ghosts of naughty children haunt the world forever.
+These children are of course a risk to Sinia and Tera if anybody was to discover their true origin.
+Therefore whenever the royal duo steps into a new reality, they make sure these humans look zombie too.
+
+Over many decades the zombie society has become more elaborate than wild animals living side by side.
+The zombies form groups with their own simpel verbal language and with the strong as well as the cunning leading these packs.
+New clones that come stumbling from the caverns are not always hunted for their meat,
+but may get initiated into the culture of the group they encounter.
+As of late one particular group has been especially successful at surviving through their culture.
+These zombies secretly send their children into the urban areas.
+By pure coincedence some of these children happen to be inside the city when Sinia and Tera shift reality.
+However as Tera failed to depict any zombies inside these cities on her painting, these children kept their human appearance.
+This allowed a small group of zombie children to grow up as adults with a human appearance, but a zombie heart, loyal only to their own survival.
+Being condemned to stealing from an early age these children have become the most notorious gang of criminals in Terniten.
+As the gang harvests success and the spoils get shared with their zombie family, more and more zombies have become loyal to this gang.
+Like dogs obeying the orders of their owners for food.
+This has led to some of the most organized zombie looting in the history of The Valley.
+A grave concern to Terniten's population who, in the increase of zombie organization,
+see the rise of a Zombie King from the darkness bend on their destruction.
+
+
+Central's Concern
+-----------------
 
