@@ -1,10 +1,9 @@
 The Valley
 ==========
 
-One of the most important locations in this story setting is The Valley.
 To most characters "The Valley" is synonym to "The World".
 For all practical purposes nothing outside of it exists.
-This document goes into some note worthy sites inside The Valley,
+This text describes some note worthy sites inside The Valley,
 how these sites developed into what they are today and which politics are involved.
 
 
@@ -50,7 +49,6 @@ As these orphaned bodies without memories or a sense of identity venture through
 Driven by hunger they will often steal from or assault the local population,
 who are poor people without prospects or the ability to settle in safer areas.
 These people bear the consequences from an easier way to travel enjoyed by a few.
-
 
 
 Queen Sinia's Rule
@@ -151,3 +149,42 @@ see the rise of a Zombie King from the darkness bend on their destruction.
 Central's Concern
 -----------------
 
+It is Central's goal to fairly divide energy across The Whole and stimulate efficient use of that energy.
+The Valley is a relatively small part of The Whole.
+Since The Valley is such a minor part of Central's regulatory domain it often slips from Central's attention.
+Especially because Central has a small amount of agents working for it.
+Because of the rather modest mingling of Central in The Valley's affairs,
+not many people inside The Valley have ever encountered a Central agent.
+That means for most Central is like any other thing outside The Valley,
+because people don't know it, it might as well not exist at all.
+
+This is not the case for Queen Sinia however, who secretly does everything in her power to stop and oppose Central.
+It has not escaped Central's attention that The City of Terniten is consuming fast amounts of energy,
+to power up its rather insufficient network of portals to travel between places.
+Strongly doubting the need for such energy usage, and suspecting that something is wrong,
+Central has send out two of its best agents to The Valley to investigate.
+Xite is an agent with the power to end the life of anybody with his bare hands, no matter how powerful they are.
+When Xite ends a life the energy contained by this individual is released and becomes available to The Whole,
+where it may find another way to manifest in a physical form.
+But Xite can only take a life in self defense.
+Somebody needs to act violently towards Xite, or he can't kill at all.
+When somebody does act violently towards him, if only through a playful stump on the shoulder,
+he has no choice but to respond with a kill. He does this instinctively and has no control over these lethal reflexes.
+Sometimes Xite is not even aware of an attack, before he responds to it with his supernatural killing blows.
+Inside the wilderness of The Valley there are plenty of mindless clones that naively attack Xite,
+unaware that it will be the last thing they do.
+The cunning like The Royal Family stay far away from Xite, which makes him harmless, but Central's second agent is not so easy to evade.
+This second agent is called Moko and his power is to end a life not with his bare hands, but with his consideration.
+When Moko reasons that your life should end it will end immediatelly.
+This is a power that Sinia deeply fears, as it is her doing that The City of Terniten consumes so much energy.
+If Moko becomes aware of this and concludes it will be best for The Whole if Queen Sinia disappears, no amount of power or influence can safe her.
+
+Which brings us to Queen Sinia's final ruse.
+Together with her daughter, she made another shift in reality, as soon as the agents arrived in The Valley.
+In this reality Moko believes that he is The One. A saviour who will redeem The Valley from the Zombie King and its hordes.
+However instead of going after the crime lord who has been coordinating zombie attacks for personal gain,
+Queen Sinia holds up the appearance that Xite is the Zombie King and should be attacked on sight,
+before he is able to unleash his doom unto the world.
+This shift changed Moko. From a thoughtful considerate person, that takes the complexity of The Whole into account.
+Into a vengeful hot head ready to fulfill his superficial fake destiny.
+Unaware that if he would ever try to attack his collegue Xite, it would end his life like any other and prolong Queen Sinia's unjust rule.
