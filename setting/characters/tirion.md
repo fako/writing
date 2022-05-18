@@ -9,7 +9,10 @@ Power
 -----
 
 Tirion has the blessing and curse of foresight. 
-Right after Sorsen the father of Tirion has spoken to the God Atad, Tirion can say exactly what is going to happen before it does.
+Whenever his father [Sorsen (The Cleric)](sorsen.md) climbs The Tower of Atad to call upon the power of Atad it's Tirion that goes up to help.
+Tirion supports his old father on the way down, because Sorsen gets severly weakened when Atad forcefully enters his body.
+When Sorsen puts an arm around his son, Tirion can feel some of the power flow into him.
+Right after Tirion receives this power he can say exactly what is going to happen before it does.
 Tirion uses this foresight to outsmart most people.
 However as time passes since the last time Sorsen has spoken to Atad, Tirion's forecasts becomes worse and worse.
 Until it's not better than anybodies guess, what the future will hold.
