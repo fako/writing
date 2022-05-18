@@ -1,9 +1,9 @@
-Xite (The Savage King)
+Xite (The Zombie King)
 =========================
 
 Xite is believed to be the ultimate evil and a danger to the world itself.
 It is thought that wherever Xite goes a horde of killing and plundering barbarians follow.
-That's why he's better known as "The Savage King" a title that strikes fear into the hearts of everybody.
+That's why he's better known as "The Zombie King" a title that strikes fear into the hearts of everybody.
 The fact that nobody really knows what he looks like adds to the mystery of Xite and the fear surrounding him.
 
 

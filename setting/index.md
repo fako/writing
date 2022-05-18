@@ -25,7 +25,7 @@ Characters
 ----------
 
 - [Moko (The One)](moko.md)
-- [Xite (The Savage King)](xite.md)
+- [Xite (The Zombie King)](xite.md)
 - [Sinia (The Queen)](sinia.md)
 - [Tirion (The Seer)](tirion.md)
 - [Tera (The Artist)](tera.md)
@@ -52,7 +52,7 @@ Xite
 
 Xite is believed to be the ultimate evil and a danger to the world itself.
 It is thought that wherever Xite goes a horde of killing and plundering barbarians follow.
-That's why he's better known as "The Savage King" a title that strikes fear into the hearts of everybody.
+That's why he's better known as "The Zombie King" a title that strikes fear into the hearts of everybody.
 The fact that nobody really knows what he looks like adds to the mystery of Xite and the fear surrounding him.
 
 
@@ -67,10 +67,10 @@ When somebody steps through these portals they see the reality they left behind 
 
 A big downside for Tera is that only her mother Sinia can turn one of her paintings into a portal.
 Therefor she relies a lot on her mother and recents that she can't create the reality that she truly wants.
-A reality where she and The Savage King are happily in love with each other.
+A reality where she and The Zombie King are happily in love with each other.
 Her mother deems a marriage between her daughter and a barbarian unfit.
-The many paintings that depict Tera and The Savage King in each others arms stand in a dusty basement unapproved by Sinia.
-The denial of Tera's love for The Savage King only makes it stronger.
+The many paintings that depict Tera and The Zombie King in each others arms stand in a dusty basement unapproved by Sinia.
+The denial of Tera's love for The Zombie King only makes it stronger.
 
 
 Moko

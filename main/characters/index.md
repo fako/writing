@@ -1,7 +1,7 @@
 Main character: [Moko (The One)](moko.md)
 
 Important characters:
-- [Xite (The Savage King)](xite.md)
+- [Xite (The Zombie King)](xite.md)
 - [Sinia (The Queen)](sinia.md)
 - [Tirion (The Seer)](tirion.md)
 - [Tera (The Artist)](tera.md)

@@ -15,7 +15,7 @@ Storyline
 ---------
 
 There are a few steps of development that Moko goes through in the story:
-* Moko believes he is destined to kill The Savage King
+* Moko believes he is destined to kill The Zombie King
 * Moko can only think about revenge for his brother's death
 * Moko is willing to break the law to get his revenge, believing that this is justified
 * Moko learns he can control the dragon named Cerof

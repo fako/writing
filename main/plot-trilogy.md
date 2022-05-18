@@ -14,57 +14,57 @@ Between the three parts there are interludes.
 What happens between these interludes is only known to the reader by what is told about them in the main parts of the trilogy.
 
 
-Part I: Hunt for the Savage King
+Part I: Hunt for the Zombie King
 --------------------------------
 
-Everywhere The Savage King and his followers go they plunder, assault and rape the population.
-Moko is The One who is destined to stop The Savage King and safe The Valley from the barbaric mob that terrorize everybody.
-It is foretold that Moko will strike The Savage King down in an epic battle where everybody else has failed.
+Everywhere The Zombie King and his followers go they plunder, assault and rape the population.
+Moko is The One who is destined to stop The Zombie King and safe The Valley from the barbaric mob that terrorize everybody.
+It is foretold that Moko will strike The Zombie King down in an epic battle where everybody else has failed.
 Amongst his peers Moko stands in high redeem and people can't wait to get rid of the evil that has haunt their lives for so long.
 
-However at the start of the story Moko does not know where to find The Savage King.
-Whenever Moko hears where he might be he goes there and finds nobody. Moko has never even seen The Savage King.
+However at the start of the story Moko does not know where to find The Zombie King.
+Whenever Moko hears where he might be he goes there and finds nobody. Moko has never even seen The Zombie King.
 It's almost as if he doesn't exist, but the horrible stories coming from the victims of the barbaric pillaging tell otherwise.
 
-Moko gets help to find The Savage King from his friend Tirion as well as Tirion's father Sorsen.
+Moko gets help to find The Zombie King from his friend Tirion as well as Tirion's father Sorsen.
 Sorsen is an old man, but he regularly climbs The Tower to call upon his super powers. Which is to know everything that was.
 Through the bond of love that he has with his son, Sorsen transfers some of his knowledge to Tirion,
 which awakens his super power to predict the future.
 Father and son are a formidable team in the struggle against the savages, with their combined knowledge of past and future,
-but so far Tirion hasn't been able to pin point where The Savage King will be accurately.
+but so far Tirion hasn't been able to pin point where The Zombie King will be accurately.
 The foresight of Tirion is not perfect and the present unfolds itself to be slightly different from what Tirion expects.
-Somehow these small errors in Tirion's predictions are enough for The Savage King to get away time and time again before Moko can confront him.
+Somehow these small errors in Tirion's predictions are enough for The Zombie King to get away time and time again before Moko can confront him.
 
 But then Tirion comes up with an ingenious plan to finally capture the villain.
-By visting certain locations and looking for signs at these places Tirion is certain he can deduct where The Savage King will be,
-based on where The Savage King was when those signs occured in the past.
-So instead of making an imperfect prediction of where The Savage King will be directly,
-Tirion will make a much more reliable inference of where the Savage King will be based on the environment.
+By visting certain locations and looking for signs at these places Tirion is certain he can deduct where The Zombie King will be,
+based on where The Zombie King was when those signs occured in the past.
+So instead of making an imperfect prediction of where The Zombie King will be directly,
+Tirion will make a much more reliable inference of where the Zombie King will be based on the environment.
 A small group will accompany Moko on his quest consisting of Tirion, Sorsen and Burte, a woman who's super powers make her the strongest and fastest,
 in the world, but who's intelligence leaves a lot to desire.
 
 The places that Tirion needs to visit to look for signs, turn out to be a lot more dangerous than Tirion let on.
 They involve encounters with:
-* Hordes of Savages
+* Hordes of Zombies
 * Confronting a notorious crime family
 * Visiting a dragon's lair
-After many close encounters with death Tirion sees all the signs he needs to predict the time and location where The Savage King should be.
-Unfortunetaly when they arrive at the right place at the right time The Savage King is nowhere in sight.
+After many close encounters with death Tirion sees all the signs he needs to predict the time and location where The Zombie King should be.
+Unfortunetaly when they arrive at the right place at the right time The Zombie King is nowhere in sight.
 Moko gets increasingly desparate. When is he going to fulfill his destiny?
 
-Disillusioned the group set out to find The Savage King returns home, but on their way they get ambushed by Savages.
+Disillusioned the group set out to find The Zombie King returns home, but on their way they get ambushed by Zombies.
 They have a hard time defending themselves as Burte falls unconscious.
 Without their strongest fighter the group seems to become overwhelmed.
-When Moko gets cornered against numbers he can't possibly defeat a mysterious man interposes himself between Moko and the Savages.
-Moko can only watch flabbergasted how enraged Savages throw themselves at the mysterious man,
-who not only paries all attacks, but shatters the Savages to dust as counter attacks hit home.
-Soon the Savage's rage turns to fear and they make a run for it.
-When Moko wants to thank the stranger, who introduced himself as Xite, Sorsen yells to Moko to kill the man, because he is The Savage King.
-Upon hearing this the man flees and Moko persuits, but only half heartedly and The Savage King soon disappears into the jungle.
+When Moko gets cornered against numbers he can't possibly defeat a mysterious man interposes himself between Moko and the Zombies.
+Moko can only watch flabbergasted how enraged Zombies throw themselves at the mysterious man,
+who not only paries all attacks, but shatters the Zombies to dust as counter attacks hit home.
+Soon the Zombie's rage turns to fear and they make a run for it.
+When Moko wants to thank the stranger, who introduced himself as Xite, Sorsen yells to Moko to kill the man, because he is The Zombie King.
+Upon hearing this the man flees and Moko persuits, but only half heartedly and The Zombie King soon disappears into the jungle.
 
-In a desperate attempt to recapture The Savage King, Tirion urges his father to climb the mountain that is said to lead to the edge of the world.
+In a desperate attempt to recapture The Zombie King, Tirion urges his father to climb the mountain that is said to lead to the edge of the world.
 Only from a very high vantage point can Sorsen call upon his super powers to "know everything that was",
-and help Tirion to outsmart The Savage King.
+and help Tirion to outsmart The Zombie King.
 A mountain range lies around the world as the characters now it.
 The world at the other side gets veiled by mist most of the time and people that descended along the mountain walls never return.
 It is therefor rumoured that no world exists beyond that mountain range.
@@ -74,7 +74,7 @@ As Sorsen is calling upon Atad to tell him everything that happened, he's actual
 Therefor he receives much more knowledge than usual, even about places beyond the valley our heroes live in.
 Sorsen is entirely overwelmed by this knowledge.
 He still manages to transfer his knowledge to Tirion, but he dies soon after.
-Tirion is devastated by his loss and the heroes abandon their quest to kill the Savage King, who may have saved their lives.
+Tirion is devastated by his loss and the heroes abandon their quest to kill the Zombie King, who may have saved their lives.
 
 
 Interlude I
@@ -86,16 +86,16 @@ He deeply fears this new world and he starts to see it as the biggest threat to 
 The valley should get protected by any means necessary and in the next part Tirion sets out to do this,
 unaware that invertedly he destroys the society he holds so dear.
 From his father's legacy he knows that the prophecies around Moko are a farce.
-Moko is not The One and "The Savage King" does not command the savages to destroy the world.
+Moko is not The One and "The Zombie King" does not command the savages to destroy the world.
 They are in fact agents from the outside world send to The Valley to break the power that Queen Sinia holds.
 The disparity between what Moko is and the prophecies that Tirion believed in for so long baffle him
 and he will not understand the nature of the prophecies until part III.
 The origin of the prophecies are not the most important thing to Tirion at the moment.
 He wants to defend himself against the outsiders and for that he needs an army.
-Since the Savages are without a ruler Tirion is certain that with his powers of foresight he can become their ruler.
+Since the Zombies are without a ruler Tirion is certain that with his powers of foresight he can become their ruler.
 As soon as he is ready Tirion plans to kill his former friend Moko and start the war with the outsiders.
 
-Tirion looses all interest in Xite, who is better known as The Savage King.
+Tirion looses all interest in Xite, who is better known as The Zombie King.
 As far as Tirion he can tell, Xite is not a king at all, but merely another agent from the outside.
 However his sister Tera now sees an opportunity to get together with Xite.
 She has been secretly in love with Xite for years now.
@@ -110,7 +110,7 @@ as he starts to doubt the prophecy proclaiming he'll kill the man who saved his 
 It will still be dangerous for them to search Xite, but Tera's love for him is driving her to take the risk.
 
 
-Part II: Rally of the Savage Hordes
+Part II: Rally of the Zombie Hordes
 -----------------------------------
 
 Tirion orders Burte to kill our hero Moko.
@@ -140,7 +140,7 @@ In this world Moko is very much alive and it is this Moko we continue to follow 
 Part III: The Acension
 ----------------------
 
-Moko is living a similar life as he was in part 1. Still hunting The Savage King with Tirion.
+Moko is living a similar life as he was in part 1. Still hunting The Zombie King with Tirion.
 Both are unaware of the events that took place.
 
 However a tragical accident happens. Moko falls into the pit that is on the top of the Tower.
@@ -196,8 +196,8 @@ Tera tells him that her aunt Tachm might be able to help him.
 She's a prophet like Tirion, but instead of telling the immediate future,
 she can tell which course in life would make him happiest.
 
-However there's a catch. Tera wants Moko to help her find her lover The Savage King.
-Tirion is keeping The Savage King captured and together they set out to free him.
+However there's a catch. Tera wants Moko to help her find her lover The Zombie King.
+Tirion is keeping The Zombie King captured and together they set out to free him.
 
 Moko learns that he's dead in this world and that Tirion has thrown the world into chaos.
 It also becomes clear that Tirion has abandoned the Tower and has moved towards the truly highest point in The Valley,
@@ -208,18 +208,18 @@ There is one such path that climbs the Valley's ridge all the way up to the stro
 Tera and Moko quickly abandon this road, because they don't want Tirion to know that they're coming.
 The element of surprise is their biggest advantage.
 
-After some ordeals they to find The Savage King in Tirion's stronghold.
+After some ordeals they to find The Zombie King in Tirion's stronghold.
 To free him they have to face Tirion who seems to haven't gone insane,
 but is only trying everything in his power to make The Valley a better place, protecting it from the unknown evil outside.
 Tirion does regret the murder of his friend, but as Moko was manipulated by Sinia he couldn't risk an attack from his friend.
-He deeply apologizes, but assures Moko that freeing The Savage King would be a big mistake.
-Everything that has been build by Tirion to defend The Valley is due to The Savage King.
-Tirion explains that the power of the Savage King is to set the monkeys to work.
-If their enemies would get a hold on The Savage King, they could harness the labor of the monkeys to build an army.
+He deeply apologizes, but assures Moko that freeing The Zombie King would be a big mistake.
+Everything that has been build by Tirion to defend The Valley is due to The Zombie King.
+Tirion explains that the power of the Zombie King is to set the monkeys to work.
+If their enemies would get a hold on The Zombie King, they could harness the labor of the monkeys to build an army.
 An army would easily overrun The Valley and destroy it.
 Without Tera and Sinia to create an alternative world the Valley would fall for real this time.
 Everybody Moko loves would die a horrible death.
 
-Moko is uncertain what to do, but he can't risk killing Tirion or freeing The Savage King.
+Moko is uncertain what to do, but he can't risk killing Tirion or freeing The Zombie King.
 Instead he demands to know where Tachm is to learn about his true destiny.
 

@@ -5,7 +5,7 @@ An overview of important events in part three of the main story. More details ab
 Listed events are not yet in chronological order and may still get dropped as the story develops.
 
 
-The Savage Orgy
+The Zombie Orgy
 ---------------
 
 Moko and Tera find Xite in the middle of an ongoing orgy,
