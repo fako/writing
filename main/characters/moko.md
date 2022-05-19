@@ -1,13 +1,8 @@
 Moko (The One)
 ==============
 
-A toughtful and rightuous agent from Central. Friend of [Tirion](tirion.md).
-
-
-Power
------
-
-Will end somebodies life if he decides that it is reasonable for The Whole.
+This is the main character. He develops from being a vengeful short sighted individual into a wise thoughtful man, 
+who takes his role in society as judge with the utmost vigilance.
 
 
 Storyline
