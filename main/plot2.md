@@ -15,3 +15,4 @@ Namely those that are enraged by the inequality between The Wild and The City an
 That doesn't mean that most Zombies live violently, it is quite the opposite.
 Most Zombies live peacefully and even if Moko and Tira were to expose where they are from, most Zombies wouldn't harm them.
 
+When confronted with a Zombie it doesn't have to be dangerous, even though most danger within the Valley comes from Zombies

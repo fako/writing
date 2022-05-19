@@ -13,6 +13,13 @@ he does have an important role to play as a sincere, thoughtful individual that 
 Between the three parts there are interludes.
 What happens between these interludes is only known to the reader by what is told about them in the main parts of the trilogy.
 
+#### Second main character?
+
+A second figure that we may begin to follow is a clone of Moko,
+who develops from an animalistic savage into a member of a primitive society.
+This clone beholds in horror how his child gets traumatized and becomes a crime lord that rallies its society against the reigning powers.
+Which mostly destroys the lives of the clones instead of those that are in power.
+
 
 Part I: Hunt for the Zombie King
 --------------------------------
