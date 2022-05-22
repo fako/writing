@@ -15,4 +15,27 @@ Namely those that are enraged by the inequality between The Wild and The City an
 That doesn't mean that most Zombies live violently, it is quite the opposite.
 Most Zombies live peacefully and even if Moko and Tira were to expose where they are from, most Zombies wouldn't harm them.
 
-When confronted with a Zombie it doesn't have to be dangerous, even though most danger within the Valley comes from Zombies
+When confronted with a Zombie it doesn't have to be dangerous, even though most danger within the Valley comes from Zombies.
+
+
+Tera's Collection
+-----------------
+
+Tera visits a storage where all of her unused paintings get stored.
+She reflects upon the love that she feels for Xite, who features in many paintings,
+and the fear for her own power.
+
+
+Tirion Should Live
+------------------
+
+Tera tries to convince Moko to use his power and sentence Tirion to death, before he becomes a tyrant.
+Moko can't come to the conclusion Tirion needs to die, because he has always been open about his own intentions,
+which haven't been malicious.
+Tirion deserves a chance to come to the understanding that he's astray and should come back to the path of peace.
+
+
+Moko Should Die
+---------------
+
+Not long after Moko's judgement that Tirion deserves a second chance, Tirion orders Burte to kill Moko, which she does without hesitation.
