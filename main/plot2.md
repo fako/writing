@@ -18,6 +18,13 @@ Most Zombies live peacefully and even if Moko and Tira were to expose where they
 When confronted with a Zombie it doesn't have to be dangerous, even though most danger within the Valley comes from Zombies.
 
 
+Terniten's Geography
+--------------------
+
+Moko and Tira disagree about how the portals are spaced out across the geography of The Valley.
+
+
+
 Tera's Collection
 -----------------
 
