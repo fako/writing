@@ -27,8 +27,7 @@ One draw back of these portals is that not every portal is connected to every ot
 If you want to get to a location at the edge of The Valley from a location in the center,
 then it may take a few jumps through multiple portals to get to your destination.
 
-However there is a much bigger drawback to these portals, but most people are unaware of this very negative side effect,
-and use the portals extensively.
+However there is a much bigger drawback to these portals, but most people are unaware of this very negative side effect.
 When using the portals it feels like "you" get transfered across large distances, as soon as you step through an opaque shimmering field.
 What actually happens is that a copy of your body gets created at the destination
 and your consciousness gets transfered into this new body instantaneously.
@@ -133,8 +132,8 @@ Over many decades the zombie society has become more elaborate than wild animals
 The zombies form groups with their own simpel verbal language and with the strong as well as the cunning leading these packs.
 New clones that come stumbling from the caverns are not always hunted for their meat,
 but may get initiated into the culture of the group they encounter.
-As of late one particular group has been especially successful at surviving through their culture.
-These zombies send their children into the urban areas.
+One particular group has been especially successful at surviving through their culture over the years.
+These zombies send their children into the urban areas, which unintentionally gives these children an edge in survival.
 By pure coincedence some of these children happen to be inside the city when Sinia and Tera shift reality.
 However as Tera failed to depict any zombies inside these cities on her painting, these children kept their human appearance.
 This allowed a small group of zombie children to grow up as adults with a human appearance, but a zombie heart, loyal only to their own survival.
@@ -168,8 +167,8 @@ When Xite ends a life the energy contained by this individual is released and be
 where it may find another way to manifest in a physical form.
 But Xite can only take a life in self defense.
 Somebody needs to act violently towards Xite, or he can't kill at all.
-When somebody does act violently towards him, if only through a playful stump on the shoulder,
-he has no choice but to respond with a kill. He does this instinctively and has no control over these lethal reflexes.
+When somebody does act violently towards him, he has no choice but to respond with a kill.
+He does this instinctively and has no control over these lethal reflexes.
 Sometimes Xite is not even aware of an attack, before he responds to it with his supernatural killing blows.
 Inside the wilderness of The Valley there are plenty of mindless clones that naively attack Xite,
 unaware that it will be the last thing they do.
