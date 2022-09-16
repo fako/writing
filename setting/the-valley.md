@@ -134,7 +134,7 @@ The zombies form groups with their own simpel verbal language and with the stron
 New clones that come stumbling from the caverns are not always hunted for their meat,
 but may get initiated into the culture of the group they encounter.
 As of late one particular group has been especially successful at surviving through their culture.
-These zombies secretly send their children into the urban areas.
+These zombies send their children into the urban areas.
 By pure coincedence some of these children happen to be inside the city when Sinia and Tera shift reality.
 However as Tera failed to depict any zombies inside these cities on her painting, these children kept their human appearance.
 This allowed a small group of zombie children to grow up as adults with a human appearance, but a zombie heart, loyal only to their own survival.
