@@ -20,34 +20,48 @@ and no roads connect sights within Terniten directly.
 Most people don't dare to venture into the wilderness.
 However instead of traversing the wilderness, people can travel between sights in the city simply by walking through these portals,
 which are guarded by the city guards and can only be used against a fee.
-
-The teleportation portals make life easier and safer in Terniten. 
-Having access to them or not makes a big difference in the prosperity of individuals as they enable trade and commerce.
-One draw back of these portals is that not every portal is connected to every other portal.
+One practical draw back of these portals is that not every portal is connected to every other portal.
 If you want to get to a location at the edge of The Valley from a location in the center,
 then it may take a few jumps through multiple portals to get to your destination.
+Overall however teleportation portals make life easier and safer in Terniten.
+Having access to them or not makes a big difference in the prosperity of individuals as they enable people to move around across large distances easily.
 
-However there is a much bigger drawback to these portals, but most people are unaware of this very negative side effect.
-When using the portals it feels like "you" get transfered across large distances, as soon as you step through an opaque shimmering field.
-What actually happens is that a copy of your body gets created at the destination
-and your consciousness gets transfered into this new body instantaneously.
-The old body gets left behind at the origin.
-So the person that steps out of the portal feels the same as the person that steps into the portal,
-and for the most part they are identical, except that the person received a brand new body.
-In part this is a good thing, because people using the portals remain younger and healthier, giving them another edge in society.
-The problems arise from the bodies that get left behind without a consciousness at the origin.
-A vast majority of these bodies die, because once a body steps through a portal field it falls into large underground caverns,
-that the portals have been build upon. 
-The fall is often fatal.
-However as bodies amass directly underneath the portals the corpses may break the fall of a body causing it to survive.
-These survivors look exactly like the person they stem from, but they are nothing but empty shells, driven by instincts and more animal than human.
-Since portals that fail to kill the disposible bodies remain in function for a while, many of these savages accumulate in the caverns.
-As their numbers grow they drive each other deeper into the caverns,
-where some may find their way to the surface through cave entrances in the wilderness.
-As these orphaned bodies without memories or a sense of identity venture through the jungle they encounter urban areas, that border the wilderness. 
-Driven by hunger they will often steal from or assault the local population,
-who are poor people without prospects or the ability to settle in safer areas.
-These people bear the consequences from an easier way to travel enjoyed by a few.
+The family that makes the portal network within Terniten possible is headed by Lorawyn.
+Lorawyn's superpower is to transfer thoughts through the wind.
+By concentrating she can charge the air with a thought after which this thought can travel as the air moves by wind
+or the air currents created by birds, or even insects.
+As a thought arrives at the destination it manifests as an idea.
+The receiver of this idea is often not aware of its origin and will interpreted it as an original thought of their own.
+Lorawyn's power is at the heart of the functioning of Terniten's portals,
+but Lorawyn power couldn't possibly make the portals work if it wasn't for the powers of her partner Pystepaco and child Codideen.
+Pystepaco can make a copy of anything, while Codideen can change the structure of things into a different structure.
+He can for instance change the structure of a tree from wood into stone and back again.
+Essentialy for the portals Codideen can change anything into "thoughts" and back again.
+When stepping through a portal Pystepaco's power creates multiple copies of a person and Codideen's power translates these copies into many different thoughts.
+These thoughts can then be transfered by Lorawyn's power and finally are translated back into a single person by Codideen's power at the destination.
+Because multiple copies get send through the wind a complete person can always be constructed from the thoughts that make the journey safely.
+Even though some thoughts may get lost or get misformed while traveling.
+Especially thoughts that make up a person's mind have the tendency to stick to other people that these thoughts encounter on the way.
+These thoughts remain in the minds of other people where they can continue to exist as ideas for a long time,
+while they were supposed to move to the destination portal to reunite with the mind of the person who's traveling.
+
+Lorawyn, Pystepaco and Codideen don't need to be present at the portals all the time to make them work.
+Pystepaco made copies of the powers of his family,
+while Codideen translated the powers into the stone structures people got to know as portals.
+However the copies of these powers still rely on Lorawyn, Pystepaco and Codideen to live.
+They won't function on their own.
+
+All in all the portals make a lot of copies of a person to make it safe to transfer them.
+At the destination however only a single person steps out of the portal.
+What happens to all the other copies?
+Codideen does translate these thoughts back into bodies and minds,
+but because the thoughts of a mind are easily lost it often happens that only the body gets reconstructed and the mind is lost forever.
+When even the thoughts of a body are incomplete it may happen that these, often mindless bodies, are missing limbs or are otherwise malformed.
+Fortunately these imperfect copies don't live very long, because the portals are build on top of large underground caverns.
+When the copies get reconstructed they immediately fall to their death.
+Another child from Lorawyn and Pystepaco named Burte is a super strong, super fast and super stupid woman.
+Her job is to get rid of these bodies as they slowly pile up at the bottom of the chasms.
+Due to her speed and strength, this is no problem at all.
 
 
 Queen Sinia's Rule
@@ -101,19 +115,47 @@ So Sinia's advice does steer away from such relationships, even if they could br
 Meanwhile paintings where Tera depicts herself in a happy relationship end up in storage,
 because Sinia refuses to step into them with her daughter, and therefor refuses for them to become reality.
 
+Queen Sinia doesn't hesitate to use the power of her daughter to her full advantage, at the expense of others, when she deems it necessary to protect her own family.
+Lorawyn's children both threaten the power of Sinia in their own way.
+Burte's sheer strength is a force to recon with.
+If she would turn against Sinia, she wouldn't stand a chance in battle.
+Fortunately for Sinia, Burte is deeply in love with her son Tirion, who doesn't love Burte as much,
+but isn't unwilling to lead her on and make Burte loyal to the royal family.
+It helps that Burte's limited intellect makes it easy to manipulate her.
+Codideen's power is more difficult to deal with.
+He is capable to change the structure of things.
+This is essential for the teleportation portals in Terniten, because things needs to change into "thoughts", before Lorawyn can transport them over the wind.
+But Codideen's power can also undo any changes that Tera has made in the world, because he can change the manipulated structures back into their authentic form.
+To prevent that Codideen uses his power against her Sinia, Tera depicted Codideen not as the young adult he is, but as a child that doesn't completely master his powers.
+For good measure Sinia has made Codideen and Burte believe that their parents are dead and she is the one who will take care of them.
+While in reality Tera has turned Lorawyn in a witch, notorious for spreading lies and Pystepaco in a monstrous wurm incapable of speak at all.
+Both are so feared by the population that they get attacked on sight.
+Even their own children turn away from them in terror, while their powers would hold the key to break the hold that Sinia has on the Lorawyn's family.
+
 
 The Zombie Society
 ------------------
 
-An issue that Sinia and Tera agree on is a problem for both of them,
-and that they need to solve together, is the constant influx of mindless savage clones into their society,
-through the constant use of teleportation portals in The City of Terniten.
+Normally the extra copies of people created by the teleportation portals in Terniten fall to their death.
+These bodies get cleaned up by Burte with her super speed and strength,
+but as Burte wants to spend time with her love Tirion and Sinia also wants other work done by Burte, it happens that bodies are not removed as often as they should.
+As bodies amass directly underneath the portals the corpses may break the fall of a body causing it to survive.
+These survivors look exactly like the person they stem from, but they are nothing but empty shells, driven by instincts and more animal than human.
+Since portals that fail to kill the disposible bodies remain in function for a while, many of these savages accumulate in the caverns.
+As their numbers grow they drive each other deeper into the caverns,
+where some may find their way to the surface through cave entrances in the wilderness.
+As these orphaned bodies without memories or a sense of identity venture through the jungle they encounter urban areas, that border the wilderness.
+Driven by hunger they will often steal from or assault the local population,
+who are poor people without prospects or the ability to settle in safer areas.
+These people bear the consequences from an easier way to travel enjoyed by a few.
+
+For Sinia and Tera it is a problem that there is a constant influx of mindless savage clones into their society.
 When exact copies of the royal family are turning havoc in the urban areas terrorizing the local population,
 then that's not good for the royal families image.
 By the very nature of Tera's power solving this problem is harder as it seems.
 For Tera to change something she has to depict it. Anything she doesn't depict will remain the same.
 However she can't depict something that she wants to disappear as this would look like nothing
-and anything that isn't on her paintings remains the same. 
+and anything that isn't on her paintings remains the same.
 Leaving out the clones in her paintings therefore would only lead to them remaining as they are and therefore remain a problem.
 Sinia's and Tera's solution is to make the clones appear as zombies.
 Making the clones look like evil monsters rallies the population of The Valley against them,
@@ -172,11 +214,12 @@ He does this instinctively and has no control over these lethal reflexes.
 Sometimes Xite is not even aware of an attack, before he responds to it with his supernatural killing blows.
 Inside the wilderness of The Valley there are plenty of mindless clones that naively attack Xite,
 unaware that it will be the last thing they do.
+
 The cunning like The Royal Family stay far away from Xite, which makes him harmless, but Central's second agent is not so easy to evade.
 This second agent is called Moko and his power is to end a life not with his bare hands, but with his consideration.
 When Moko reasons that your life should end it will end immediatelly.
 This is a power that Sinia deeply fears, as it is her doing that The City of Terniten consumes so much energy.
-If Moko becomes aware of this and concludes it will be best for The Whole if Queen Sinia disappears, no amount of power or influence can safe her.
+If Moko becomes aware of this and concludes it will be best for The Whole if Queen Sinia disappears, no amount of power, manipulation or influence can safe her.
 
 Which brings us to Queen Sinia's final ruse.
 Together with her daughter, she made another shift in reality, as soon as the agents arrived in The Valley.
