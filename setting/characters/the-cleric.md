@@ -1,8 +1,8 @@
 Sorsen (The Cleric)
 ===================
 
-A man who knows everything that has happened in the world. Husband to [Sinia (The Queen)](sinia.md) and father to [Tirion (The Seer)](tirion.md)
-and [Tera (The Artist)](tera.md).
+A man who knows everything that has happened in the world. Husband to [Sinia (The Queen)](the-queen.md) and father to [Tirion (The Seer)](the-seer.md)
+and [Tera (The Artist)](the-artist.md).
 
 
 Power

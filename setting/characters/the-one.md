@@ -1,7 +1,7 @@
 Moko (The One)
 ==============
 
-A toughtful and rightuous agent from Central. Friend of [Tirion](tirion.md).
+A toughtful and rightuous agent from Central. Friend of [Tirion](the-seer.md).
 
 
 Power

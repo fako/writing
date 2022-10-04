@@ -24,12 +24,12 @@ As Tirion gets the knowledge from his father like he always does he goes insane.
 Characters
 ----------
 
-- [Moko (The One)](moko.md)
-- [Xite (The Zombie King)](xite.md)
-- [Sinia (The Queen)](sinia.md)
-- [Tirion (The Seer)](tirion.md)
-- [Tera (The Artist)](tera.md)
-- [Burte (Superwoman)](burte.md)
+- [Moko (The One)](the-one.md)
+- [Xite (The Zombie King)](zombie-king.md)
+- [Sinia (The Queen)](the-queen.md)
+- [Tirion (The Seer)](the-seer.md)
+- [Tera (The Artist)](the-artist.md)
+- [Burte (Superwoman)](superwoman.md)
 - Cerof (The Dragon)
-- [Sorsen (The Cleric)](sorsen.md)
+- [Sorsen (The Cleric)](the-cleric.md)
 - Encinneco (Moko's Brother, who recently died)

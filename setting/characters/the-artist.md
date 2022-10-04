@@ -1,8 +1,8 @@
 Tera (The Artist)
 =================
 
-The love of [Moko](moko.md), but is in turn secretly in love with [Xite](xite.md), who only sporadically answers it.
-Sister of [Tirion](tirion.md).
+The love of [Moko](the-one.md), but is in turn secretly in love with [Xite](zombie-king.md), who only sporadically answers it.
+Sister of [Tirion](the-seer.md).
 
 
 Power
@@ -17,7 +17,7 @@ She regularly has found that worlds she tried to create have turned out differen
 In some cases these worlds actually harmed her and she had to step back or create another world in a hurry. 
 To escape what she thought would be an amazing world to live in.
 
-Her only way to deal with this problem and create worlds that benefit her is to trust her mother [Sinia](sinia.md).
+Her only way to deal with this problem and create worlds that benefit her is to trust her mother [Sinia](the-queen.md).
 Because Sinia can know whether a choice will have a good or bad outcome for the person involved Sinia can help Tera create worlds that benefit her.
 Of course Sinia makes sure that these worlds also benefit her.
 A reality where Tera and Xite are happily in love with each other is something Tera strongly desires,

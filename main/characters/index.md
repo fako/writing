@@ -1,10 +1,10 @@
-Main character: [Moko (The One)](moko.md)
+Main character: [Moko (The One)](the-one.md)
 
 Important characters:
-- [Xite (The Zombie King)](xite.md)
-- [Sinia (The Queen)](sinia.md)
-- [Tirion (The Seer)](tirion.md)
-- [Tera (The Artist)](tera.md)
+- [Xite (The Zombie King)](zombie-king.md)
+- [Sinia (The Queen)](the-queen.md)
+- [Tirion (The Seer)](the-seer.md)
+- [Tera (The Artist)](the-artist.md)
 
 Side characters:
 - Burte (Superwoman)

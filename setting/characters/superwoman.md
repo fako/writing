@@ -1,7 +1,7 @@
 Burte (Superwoman)
 ==================
 
-Girlfriend of [Tirion (The Seer)](tirion.md).
+Girlfriend of [Tirion (The Seer)](the-seer.md).
 She hates men and many men hate her, because she is clearly superior to them.
 
 
