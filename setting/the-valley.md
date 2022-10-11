@@ -28,8 +28,8 @@ Having access to them or not makes a big difference in the prosperity of individ
 
 The family that makes the portal network within Terniten possible is headed by Lorawyn.
 Lorawyn's superpower is to transfer thoughts through the wind.
-By concentrating she can charge the air with a thought after which this thought can travel as the air moves by wind
-or the air currents created by birds, or even insects.
+By concentrating she can charge the air with a thought. After which this thought can travel as the air moves: by wind,
+the air currents created by birds, or even those of insects.
 As a thought arrives at the destination it manifests as an idea.
 The receiver of this idea is often not aware of its origin and will interpreted it as an original thought of their own.
 Lorawyn's power is at the heart of the functioning of Terniten's portals,
@@ -125,12 +125,14 @@ It helps that Burte's limited intellect makes it easy to manipulate her.
 Codideen's power is more difficult to deal with.
 He is capable to change the structure of things.
 This is essential for the teleportation portals in Terniten, because things needs to change into "thoughts", before Lorawyn can transport them over the wind.
-But Codideen's power can also undo any changes that Tera has made in the world, because he can change the manipulated structures back into their authentic form.
-To prevent that Codideen uses his power against her Sinia, Tera depicted Codideen not as the young adult he is, but as a child that doesn't completely master his powers.
+But Codideen's power can also undo any changes that Tera has made in the world,
+because he can change the manipulated structures made by Tera back into their authentic form.
+To prevent that Codideen uses his power against her, Sinia covinced Tera to depict Codideen not as the young adult he is,
+but as a child that doesn't completely master his powers.
 For good measure Sinia has made Codideen and Burte believe that their parents are dead and she is the one who will take care of them.
-While in reality Tera has turned Lorawyn in a witch, notorious for spreading lies and Pystepaco in a monstrous wurm incapable of speak at all.
-Both are so feared by the population that they get attacked on sight.
-Even their own children turn away from them in terror, while their powers would hold the key to break the hold that Sinia has on the Lorawyn's family.
+While in reality Tera has turned their mother Lorawyn in a witch, notorious for spreading lies and their father Pystepaco in a tree,
+incapable of speech or action on his own.
+Lorawyn has been brooding on a way to get back to Sinia and restore her family.
 
 
 The Zombie Society
@@ -161,10 +163,25 @@ Sinia's and Tera's solution is to make the clones appear as zombies.
 Making the clones look like evil monsters rallies the population of The Valley against them,
 which try to destroy them on sight and effectively kill the clones, who have done nothing but survive, while they weren't supposed to.
 
-This plan isn't flawless, because the zombies are actually humans that experience all emotions,
-they are often as scared of inhabitants of The Valley as the inhabitants are scared of the zombie appearance.
+The zombies are also an opportunity for Lorawyn to try and dethrone Sinia.
+Since the zombies are mindless for a large part and otherwise mentally weak due to hunger and suffering,
+they make easy targets for Lorawyn to manipulate their thoughts.
+She often reinforces the zombies desire to loot and steel from the people living in Terniten.
+Hoping that a massive attack on the city will lead to an opening in the defenses that allow her to get back her children.
+To increase her chances of success she asks Pystepaco to make copies of the zombies that she can easily manipulate.
+This way hordes of zombies do occassionally swamp the city defenses.
+These attacks are a grave concern to Terniten's population who, in the increase of zombie organization,
+see the rise of a Zombie King from the darkness bend on their destruction.
+Not knowing that a Zombie Queen would be a more adequate description.
+So far Lorawyn has been able to get into the city unseen during an attack,
+but her appearance of a witch has scared her children away, when she tries to get in contact.
+Codideen could help her to shed the false form of course, but he just doesn't trust the frightful woman.
+
+Not all zombies are part of this struggle between Lorawyn and Sinia.
+Because the zombies are actually humans that experience all emotions,
+they are often as scared of inhabitants of The Valley as the inhabitants are scared of the zombies.
 This leads to some zombies leading secluded lives in the wilderness, learning how to forage,
-and instead of suffering a violent death even reproduce amongst themselves.
+and instead of suffering a violent death in an attack on Terniten, even reproduce amongst themselves.
 Initially born like any normal human being, the children that come from zombies can sometimes be seen playing between the dead from afar,
 which gives rise to many legends about how the ghosts of naughty children haunt the world forever.
 These children are of course a risk to Sinia and Tera if anybody was to discover their true origin.
@@ -181,10 +198,6 @@ However as Tera failed to depict any zombies inside these cities on her painting
 This allowed a small group of zombie children to grow up as adults with a human appearance, but a zombie heart, loyal only to their own survival.
 Being condemned to stealing from an early age these children have become the most notorious gang of criminals in Terniten.
 As the gang harvests success and the spoils get shared with their zombie family, more and more zombies have become loyal to this gang.
-Like dogs obeying the orders of their owners for food.
-This has led to some of the most organized zombie looting in the history of The Valley.
-A grave concern to Terniten's population who, in the increase of zombie organization,
-see the rise of a Zombie King from the darkness bend on their destruction.
 
 
 Central's Concern
