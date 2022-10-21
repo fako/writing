@@ -14,3 +14,9 @@ Many problems in the world can not be ignored or solved with our primal response
 they require thoughtful individuals who can sincerely study the problem to come to a possible solution.
 Dishonesty with ourselves and others stands in the way of this process
 and keeps us from a truly happy life longer than is strictly necessary.
+
+
+Version III
+-----------
+
+A civilised society can ascent the desires of its members and halt its own expansion in favor of a symbiosis with its environment.
