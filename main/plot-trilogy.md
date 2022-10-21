@@ -1,24 +1,29 @@
-The Acension Trilogy
-====================
+The Ascension Trilogy
+=====================
 
-The person we follow in this trilogy is Moko.
-He develops from being a vengeful short sighted individual into a wise thoughtful man,
-who takes his role in society as judge with the utmost vigilance.
+The story is told through the perspective of the following characters:
 
-In part I Moko is convinced that he is "The One" and that he's destined to deliver the world from evil.
-In part II he starts to realize that the role he has to play in this world is more elaborate than he initially thought.
-In part III he fully realizes that, although the answers to many problems in the world can not be solved with destiny and violence,
-he does have an important role to play as a sincere, thoughtful individual that fights for justice peacefully.
+* [Moko (The One)](characters/the-one.md)
+* [I (The Zombie)](characters/the-zombie.md)
+* [Tera (The Artist)](characters/the-artist.md)
+* [Lorawyn (The Witch)](characters/the-witch.md)
+* [Sorsen (The Cleric)](characters/the-cleric.md)
 
-Between the three parts there are interludes.
-What happens between these interludes is only known to the reader by what is told about them in the main parts of the trilogy.
+The development of these characters brings home the story's thesis:
+"a civilised society can ascent the desires of its members and halt its own expansion in favor of a symbiosis with its environment"
 
-#### Second main character?
-
-A second figure that we may begin to follow is a clone of Moko,
-who develops from an animalistic savage into a member of a primitive society.
-This clone beholds in horror how his child gets traumatized and becomes a crime lord that rallies its society against the reigning powers.
-Which mostly destroys the lives of the clones instead of those that are in power.
+Each part in the trilogy fulfills a different function.
+Part one describes a society in conflict with its environment.
+A society that needs a hero to "save" it, while all problems are of its own devising and "saving" means a prologation of the problems.
+Powerful members of the society are desparatly clinging to their power and try to keep everything the same,
+while the society is in fact stuck in its own habits, unable to see the changes that are needed for true progress.
+Part two cracks open the image of a well functioning society to the reader.
+Revealing that everything that the reader thinks it knows is part of an intricate web of lies, designed to keep things as they are.
+At the end of part two the reader is confronted with a collapse of society as its members push for their own gains too hard,
+which leads to an environment unable to sustain the society they are part of.
+In part three a reset takes place and the reader initially finds itself in the pre-apocalyptic world of part one.
+However it turns out that this "restored world" is nothing but a thin wrapper around all the problems that surfaced in part two.
+It takes true heroship and personal sacrifice in part three to steer the society in a different direction even though not all people benefit from this change.
 
 
 Part I: Hunt for the Zombie King

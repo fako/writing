@@ -1,8 +1,13 @@
 Moko (The One)
 ==============
 
-This is the main character. He develops from being a vengeful short sighted individual into a wise thoughtful man, 
+He develops from being a vengeful short sighted individual into a wise thoughtful man,
 who takes his role in society as judge with the utmost vigilance.
+
+In part I Moko is convinced that he is "The One" and that he's destined to deliver the world from evil.
+In part II he starts to realize that the role he has to play in this world is more elaborate than he initially thought.
+In part III he fully realizes that, although the answers to many problems in the world can not be solved with destiny and violence,
+he does have an important role to play as a sincere, thoughtful individual that fights for justice peacefully.
 
 
 Storyline
