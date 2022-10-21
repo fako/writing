@@ -1,5 +1,5 @@
-The Ascension Trilogy
-=====================
+A Hero's Sacrifice
+==================
 
 The story is told through the perspective of the following characters:
 
