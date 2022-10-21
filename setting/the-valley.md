@@ -5,7 +5,7 @@ To most characters "The Valley" is synonym to "The World".
 For all practical purposes nothing outside of it exists.
 This text describes some note worthy sites inside The Valley,
 how these sites developed into what they are today and which politics are involved.
-
+The Valley froms the backdrop for [A Hero's Sacrifce](../main/plot-trilogy.md).
 
 
 The City of Terniten
@@ -71,7 +71,7 @@ For every choice in life Sinia knows whether it will have a good or a bad outcom
 Because of this her subjects often seek her advice in all sorts of issues.
 From settling quarrels in families to handling matters of state, Sinia is consulted in most cases,
 because her proposed solutions always lead to satisfaction.
-It easy to see how her subjects adore her and her rule is completely uncontested.
+It's easy to see how her subjects adore her and her rule is completely uncontested.
 The Valley used to be democratic, but it was Sinia who convinced people that making her queen would make everybody happier.
 And even though it can't be contested that satisfaction has risen under her rule,
 a complete lack of democratic control is slowly rotting society in The Valley from the inside out.
@@ -127,7 +127,7 @@ He is capable to change the structure of things.
 This is essential for the teleportation portals in Terniten, because things needs to change into "thoughts", before Lorawyn can transport them over the wind.
 But Codideen's power can also undo any changes that Tera has made in the world,
 because he can change the manipulated structures made by Tera back into their authentic form.
-To prevent that Codideen uses his power against her, Sinia covinced Tera to depict Codideen not as the young adult he is,
+To prevent that Codideen uses his power against her, Sinia convinced Tera to depict Codideen not as the young adult he is,
 but as a child that doesn't completely master his powers.
 For good measure Sinia has made Codideen and Burte believe that their parents are dead and she is the one who will take care of them.
 While in reality Tera has turned their mother Lorawyn in a witch, notorious for spreading lies and their father Pystepaco in a tree,
@@ -142,7 +142,9 @@ Normally the extra copies of people created by the teleportation portals in Tern
 These bodies get cleaned up by Burte with her super speed and strength,
 but as Burte wants to spend time with her love Tirion and Sinia also wants other work done by Burte, it happens that bodies are not removed as often as they should.
 As bodies amass directly underneath the portals the corpses may break the fall of a body causing it to survive.
-These survivors look exactly like the person they stem from, but they are nothing but empty shells, driven by instincts and more animal than human.
+These survivors look exactly like the person they stem from, but are often maimed and almost always retarted,
+because parts of their minds got lost as they travelled between portals.
+Consequently they are driven by instincts and more animal than human.
 Since portals that fail to kill the disposible bodies remain in function for a while, many of these savages accumulate in the caverns.
 As their numbers grow they drive each other deeper into the caverns,
 where some may find their way to the surface through cave entrances in the wilderness.
@@ -171,8 +173,8 @@ Hoping that a massive attack on the city will lead to an opening in the defenses
 To increase her chances of success she asks Pystepaco to make copies of the zombies that she can easily manipulate.
 This way hordes of zombies do occassionally swamp the city defenses.
 These attacks are a grave concern to Terniten's population who, in the increase of zombie organization,
-see the rise of a Zombie King from the darkness bend on their destruction.
-Not knowing that a Zombie Queen would be a more adequate description.
+see the rise of a Zombie King from the darkness bend on their destruction,
+not knowing that a Zombie Queen would be a more adequate description.
 So far Lorawyn has been able to get into the city unseen during an attack,
 but her appearance of a witch has scared her children away, when she tries to get in contact.
 Codideen could help her to shed the false form of course, but he just doesn't trust the frightful woman.
